@@ -1,0 +1,14 @@
+---
+tags:
+  - GunCity
+  - location
+  - GunsTitty
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+---
+
+The Headquarters of the [[Mad Suckla]]'s operations
+
+The front door of the den appears to be almost a blank wall, when the gang initial come to it [[John Carlo]] has them turn around as not to see how he opens it. [[Monkey named Patrick]] is able to sneak a gaze as John opens it but goes a ghostly white upon seeing it only able to convey the word "vagina" through telepathy to [[Patrick Yoda]]
+
+excerpt from Uncles Falcon Ep 5: 
+Narrator: *at first all you see is pitch blackness. When your eyes begin to adjust and a faint red light begins to grow. And you see the outline of a techno industrial fortress, high ceilings and drop down chandeliers shaped like guns that have strange lights glowing in and out of them and massive screens all along the walls playing looping surveillance footage of everywhere in Gun City with the occasional pornographic images flashing as well. Drone music creepily thumps in the background. You hear the idle chatter between unseen women. Are they laughing at you? Are they laughing at your pee pee? (They are). You're in the sucklas den. You've heard stories about this place about the debauchery that takes place here, the riches within, the politicians, businessmen, and celebrities who've come through here to have an audience with the underworld kingpin. You notice that even trying to use minor techno slime abilities is impossible in here. The whole area is totally nerfed. Ray William Johnson, with his double post nut clarity, has heightened awareness.  noticing that around him there are large [[Worm (Race)]]s slithering and suckling on things and burrowing into holes as he walks through the pitch black. He sees the flashing of red light revealing that There are worms that aren't going into the pathway but are just slithering around. And they seem to be avoiding his path. The flickering lights on the chandeliers begin to illuminate a throne. And in front, the man of the hour sits, the mad suckla himself flanked by beautiful big bitches, huge bitches and his twin killers, two massive cyborgs with terrifying metallic skeleton heads; [[Mary Kate and Ashley Cabrera]]. Suckla's long muscular, but worm like, body is even more slimy in person, and his rockabilly hair cut even more gravity defying. You can't quite make out his eyes, It's like they're two pitch black holes, lodged inside his skull. But you'd know that terrifying jagged tooth smile from anywhere as it's often plastered along the slums to remind people to watch out or the suckla will get you.*

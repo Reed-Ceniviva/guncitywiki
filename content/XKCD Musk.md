@@ -1,0 +1,1 @@
+Previous President of [[Steakums Federation of Bodies and Spaces]]
