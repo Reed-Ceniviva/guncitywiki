@@ -232,6 +232,10 @@ plugins:
       links:
         GitHub: https://github.com/jackyzha0/quartz
         Discord Community: https://discord.gg/cRFFHYye7t
+        PAL Youtube: https://www.youtube.com/PodcastAboutList
+        PAL Patreon: https://www.patreon.com/c/podcastaboutlist/posts
+        PAL Website: https://www.swagpoop.com/
+        Wiki Creator Site: https://www.reedaceniviva.com/
     layout:
       position: footer
       priority: 50
