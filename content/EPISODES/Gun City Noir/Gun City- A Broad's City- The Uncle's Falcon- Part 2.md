@@ -11,7 +11,7 @@ characters:
   - Stag Party
   - Michael The Crawler
 Year Set: 2245
-Campaign: "A Broad's City: The Uncle's Falcon"
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 Next Ep: [[Gun City- A Broad's City- The Uncle's Falcon- Part 3]]
 Previous Ep: [[Gun City- A Broad's City- The Uncle's Falcon- Part 1]]

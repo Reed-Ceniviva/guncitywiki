@@ -141,9 +141,9 @@ Walking out of the hanger the heroes can see the massive implements protecting t
 Leo (spinning a cube globe): it's only a precaution, I promise. I need to talk to you all about something
 Patrick whispering: He's got the cube globe, you guys. Holy fucking shit, you guys.
 Blotoss: This guy loves items.
-Leo: I have something interesting I need to tell you all about. I'm sure I don't need to tell you all this. You're three of the most renowned archaeologists/adventurers/professors on the planet. before Earthlings arrived on Planet [[Ebaum]], there were many a civilization, but none as storied or as lost to time as the Tamagotchi people. Thought of as almost mystical in nature, recent discoveries have been made that suggest they do indeed exist. I believe some of you, one of you have written papers on this. That said, there isn't a ton of scholarship on it. But you know that the Tamagotchi people were famous for being really needy and much of their infrastructure helped sort of lay the groundwork for many of the smaller city-state outside of Gun City and on the rest of Planet Ebaum. 
+Leo: I have something interesting I need to tell you all about. I'm sure I don't need to tell you all this. You're three of the most renowned archaeologists/adventurers/professors on the planet. before Earthlings arrived on Planet [[Ebaum]], there were many a civilization, but none as storied or as lost to time as the [[Tamagotchi (Race)]] people. Thought of as almost mystical in nature, recent discoveries have been made that suggest they do indeed exist. I believe some of you, one of you have written papers on this. That said, there isn't a ton of scholarship on it. But you know that the Tamagotchi people were famous for being really needy and much of their infrastructure helped sort of lay the groundwork for many of the smaller city-states outside of Gun City and on the rest of Planet Ebaum. 
 Patrick: Like Palestine?
-Leo: Like Palestine. Yes. Yeah, baby. But the most thing that I have been, I've been collecting for years now after I made my money doing this that and the other thing, I have been collecting for many years. And the treasure that has eluded me, besides The Engage, is another treasure, that I have been laughed out of all types of collectors circles, for insisting that it is real, but I know it is. 
+Leo: Like Palestine. Yes. Yeah baby. But the most thing that I have been, I've been collecting for years now after I made my money doing this that and the other thing, I have been collecting for many years. And the treasure that has eluded me, besides The Engage, is another treasure, that I have been laughed out of all types of collectors circles, for insisting that it is real, but I know it is. 
 Blotoss, Ray, and Leo: The [[N-Word Pass]]
 Leo: I knew you thr-- two would be familiar.
 Ray: I'm very familiar, yes.
@@ -156,21 +156,21 @@ Leo: I'll tell you what, that is up to you.
 Patrick: And it's a different N-word, right?
 Leo: ...Moving on.
 Patrick: It's not the one we're thinking? I thought it was a word for Tamagotchis? Can I say it? 
-Leo: ...After Papi Chuco there was a great gap in power over the last two years for a lot of control of the city. I'm not saying I can fill that same void. My businesses wouldn't certainly be able to fulfill such a thing. But... if I have the N-word pass, if we, three of us, four of us, you too Patrick, have the N-word pass, we might be able to do a lot of good. And! the worst part is there are also other people going after it, And I know this for a fact because I have to admit that I did consult archaeologist [[Pennsylvania Jim]].
+Leo: ...After [[Papi Chuco]] there was a great gap in power over the last two years for a lot of control of the city. I'm not saying I can fill that same void. My businesses wouldn't certainly be able to fulfill such a thing. But... if I have the N-word pass, if we, three of us, four of us, you too Patrick, have the N-word pass, we might be able to do a lot of good. And! the worst part is there are also other people going after it, And I know this for a fact because I have to admit that I did consult archaeologist [[Pennsylvania Jim]].
 Patrick: Fuck! God, I fucking hate that guy.
 Ray: He's so sexy, but it sucks.
 Patrick: His shirt's always unbuttoned the correct way.
 Ray: God damn it.
 Patrick: God.
 Blotoss: He has it buttoned at the top, but he leaves two buttons at the bottom and his stomach hangs out.
-Patrick: His stomach is so good because beauty standards in Ebaums world are different than Earth's.
+Patrick: His stomach is so good because beauty standards in Ebaum's world are different than Earth's.
 Leo: That's fortunately true. Now Pennsylvania Jim, look, you three were in prison. I felt the urge. I felt the need to know more about it, so I hired him for some time. All he could do was translate some of the writings that I had discovered, and he couldn't quite narrow down the location of the N-word pass. But there is an artifact that will tell us where it is. And it will luckily be at an auction that I'm holding tomorrow evening The auction is going to be hosting about seven to twelve objects probably closer to seven, Looking at my notes. How many jokes did I write? seven. so. This auction I'm hosting will be in the events building.
 
 Leo points out a window of his mansion to a pokemon stadium looking building that they could see during their arrival. This is Leo's main venue for hosting events that he had built on his island. 
 
 Leo: tomorrow night there will be an auction, Where at there, there will be seven artifacts up for grabs and The last one will be the floppy disk that holds: Del Sola De Penguin. Which apparently, has, within it, the location, of, If not, The temple, where it, the, n-word pass exists, at least a clue, to where the temple is. That's of course based on some research and then some things that-- that Pennsylvania Jim said but I Need that artifact tomorrow night
 Ray: the penguin of doom 
-Leo: the temple of teh panguin of doom 
+Leo: [[The Temple of Teh Penguin of Doom]] 
 Ray: Wow
 Leo: that's right. 
 Ray: I was just guessing on the, the Spanish translation

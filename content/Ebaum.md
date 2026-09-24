@@ -6,6 +6,18 @@ aliases:
   - Planet Ebaum
   - Ebaum's World
 ---
+Locations
+
+| Location                 | Type          |
+| ------------------------ | ------------- |
+| [[Gun City]]             | Landmass/City |
+| The Frozen Wastes of Soy | Arctic        |
+| The Seabaum              | Ocean         |
+|                          |               |
+
+---
+
+
 Penguin of Doom Notes:
 
 - this is supposed to be like an even more You know Capitalist world in the world we're in
@@ -13,7 +25,7 @@ Penguin of Doom Notes:
 
 
 Leo talking about the Tamagotchis:
-before Earthlings arrived on Planet [[Ebaum]], there were many a civilization, but none as storied or as lost to time as the Tamagotchi people. Thought of as almost mystical in nature, recent discoveries have been made that suggest they do indeed exist.
+before Earthlings arrived on Planet Ebaum, there were many a civilization, but none as storied or as lost to time as the Tamagotchi people. Thought of as almost mystical in nature, recent discoveries have been made that suggest they do indeed exist.
 
 
 ---
@@ -22,7 +34,7 @@ before Earthlings arrived on Planet [[Ebaum]], there were many a civilization, b
 Uncle's Falcon Notes:
 
 - Tokens make the planet go round
-- beyond the shores of the gun city continent are the oceans of the Sea Baum 
+- beyond the shores of the gun city continent are the oceans of The Seabaum 
 
 
 

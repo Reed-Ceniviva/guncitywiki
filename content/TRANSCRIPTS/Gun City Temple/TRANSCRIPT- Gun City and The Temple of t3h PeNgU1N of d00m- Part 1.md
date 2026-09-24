@@ -1,5 +1,6 @@
 
-
+Next Transcript: [[TRANSCRIPT- Gun City and The Temple of t3h PeNgU1N of d00m- Part 2]]
+Previous Transcript:
 
 Narrator: Interior: Shane Dawson Maximum Security Prison for the criminally insane.
 Evening. The seat opens on a tight close-up of a familiar face, a Yoda who has seen better days. Face pressed up against the unobtanium bars that keep him from escaping. Around his head is an Adidas Force suppression sweatband that keeps him from unleashing hell on the unsuspecting Jollibees who guard his cell. So um, yeah I described you Patrick Yoda. 

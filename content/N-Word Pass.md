@@ -5,7 +5,7 @@ tags:
 ---
 
 
-A pass made by the ancient Ebaum civilization of the Tamagotchi's using technology they worked on for hundreds of years.
+The Tamagotchi people apparently spent hundreds of years developing the correct technology and magics to create an actual N-word pass.
 
 Allows the user to use the N-word without incurring the consequences of it.
 

@@ -10,6 +10,7 @@ Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 
 
 The missing husband of [[Hussy Kitsune]] in Broads City Uncles Falcon
+Lived in [[The Princess Peach Castle]] with Hussy
 Was hiding pictures of Carmen Electra in his room
 Shits his underwear
 Eats a lot of cheese balls

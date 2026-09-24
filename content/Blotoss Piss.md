@@ -44,6 +44,7 @@ Sleeps Inside a Tent which is inside a Whoville themed snow globe which is insid
 - watched the third Herald and Kumar movie 18 times
 - was a part of [[SEAL Team 7]]
 - has taught at Yule University
+- Has a friend link with Patrick Yoda
 
 
 Character Intro: 

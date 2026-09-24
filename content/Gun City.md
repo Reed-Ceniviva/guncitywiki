@@ -28,18 +28,23 @@ The Largest city on planet [[Ebaum]]
 ![[Pasted image 20260909014110.png]]
 Patches showed some of his roll20 files on screen in [[The Maids 3: Free Sex Day]]
 
+
+
 ---
-notes from The penguin of doom
+[[Gun City and the Temple of t3h PeNgU1N of d00m]] Notes:
 
 - food is not great like 2020 Jollibee was
 - you can pay your way out of prison, this is talked about in uncles falcon but just noting it again
 - The landmass that Gun City is on is shaped like a revolver gun
 
+[[Leo the Collector]] Talking about Gun City:
+Leo: Gun City is sort of a landmass that was a bunch of toxic ooze that they built a city upon. That toxic ooze ended up being [[Techno Slime]], and that Techno Slime ended up being very, very valuable and enriched the city. It was one of the first major settlements on planet Ebaum. Gun City also has these things called Outer Zones. These are sort of like burrows in the big apple. And one of the burrows is Scope, which is literally like a scope on top of a pistol. This 38 looking special that is Gun City. And the scope is Scope Outer Zone sponsored by Scope Mouthwash. And it is a landmass that is a desert. But right north of it is this massive mountain and then beyond that is the Frozen Wastes of Soy, which is sort of this like a frozen expanse that people don't really go to. All around the Gun City landmass is the uninhabitable Seabaum sponsored by Stamps.com. And it's this sort of oozy, smoky, primordial planet material, sort of like a gaseous kind of thing that nobody can live in for longer than like half a second.
+
 
 
 ---
 
-notes from A Broads City Uncles Falcon
+[[Gun City- A Broad's City- The Uncle's Falcon]] Notes:
 
 - Heroes don't solve mysteries in gun city
 - most of the major companies of the 21st century have combined together into larger monopoly organizations
@@ -56,7 +61,7 @@ notes from A Broads City Uncles Falcon
 
 ---
 
-notes from Solutio Darkbrain:
+[[Gun City- Operation Solutio Darkbrain]] Notes:
 
 Excerpt from [[Gun City- Operation Solutio Darkbrain]] Introduction:
 *The largest city on planet Ebaum, [[Gun City]], is run by a puppet government installed by the [[Steakums Federation of Bodies and Spaces]], humans have finally learned to worship their corporate overlords and have fully embraced the  oppression and technological comforts that come with it*

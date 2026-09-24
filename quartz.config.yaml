@@ -7,7 +7,7 @@ configuration:
   analytics:
     provider: plausible
   locale: en-US
-  baseUrl: Reed-Ceniviva.github.io/guncitywiki
+  baseUrl: github.com/Reed-Ceniviva/guncitywiki.git
   ignorePatterns:
     - private
     - templates

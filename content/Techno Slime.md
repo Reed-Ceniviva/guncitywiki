@@ -27,6 +27,7 @@ Smoking
 Injecting
 Optical Light Transfer ([[Techno Slime Light]] Drugs)
 Drinking
+Pills
 
 Can cause [[techno slime addiction]]
 
