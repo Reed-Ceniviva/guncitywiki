@@ -1,24 +1,26 @@
 
 1. Gun City Timeline
-	1. ==Gun City: Operation Solutio Darkbrain (2)==
-		1. ==Subtitles created==
-		2. ==Transcripts extracted (Raw)==
-		3. ==Clean dialog transcriptions and summarize actions==
-		4. ==add formatting and section titles==
-		5. ==update Table of Contents and Roadmap==
-	2. ==Gun City: A Broad's City: The Uncle's Falcon==
-		1. ==Subtitles created==
-		2. ==Transcripts extracted (Raw)==
-		3. ==Clean dialog transcriptions and summarize actions==
-		4. ==add formatting and section titles==
-		5. ==update Table of Contents and Roadmap==
+	1. Gun City: Operation Solutio Darkbrain (2)
+		- [x] Subtitles created
+		- [x] Transcripts extracted (Raw)
+		- [x] Clean dialog transcriptions and summarize actions
+		- [x] Add formatting and section titles
+		- [x] Add missed links and update related information 
+		- [x] update Table of Contents and Roadmap
+	2. Gun City: A Broad's City: The Uncle's Falcon
+		- [x] Subtitles created
+		- [x] Transcripts extracted (Raw)
+		- [x] Clean dialog transcriptions and summarize actions
+		- [x] Add formatting and section titles
+		- [x] Add missed links and update related information 
+		- [x] update Table of Contents and Roadmap
 	3. Gun City and the Temple of teh PeNgU1N of d00m
-		1. Subtitles created(9/11)
-		2. Transcripts extracted (Raw) (9/11)
-		3. Clean dialog transcriptions and summarize actions
-		4. add formatting and section titles
-		5. Add missed links and update related information
-		6. update Table of Contents and Roadmap
+		- [x] Subtitles created(10/11) - DaVinci Resolve won't make them for ep 8
+		- [x] Transcripts extracted (Raw) (10/11)
+		- [ ] Clean dialog transcriptions and summarize actions (1/11)
+		- [ ] add formatting and section titles (0/11)
+		- [ ] Add missed links and update related information 
+		- [ ] update Table of Contents and Roadmap
 	4. Sullivan's 11
 	5. Playtime Continuufun
 	6. Escape from Mneme

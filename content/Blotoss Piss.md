@@ -45,6 +45,7 @@ Sleeps Inside a Tent which is inside a Whoville themed snow globe which is insid
 - was a part of [[SEAL Team 7]]
 - has taught at Yule University
 - Has a friend link with Patrick Yoda
+- Was arrested in [[Gadsville]] for cause multiple crashes while drunk driving a killdozer Walmart scooter
 
 
 Character Intro: 

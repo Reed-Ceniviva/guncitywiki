@@ -4,7 +4,7 @@ tags:
   - location
 ---
 Penguin of Doom Notes:
-- 
+- China Annexed the mid-west in the late 21st century allowing amazon to start its planned communities in Duluth 
 
 
 

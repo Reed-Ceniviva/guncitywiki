@@ -7,8 +7,6 @@ race: Human
 Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
-
-
 looks like whatever you find to be the most beautiful being 
 looks like whatever you want to see
 runs the [[Mommy Goodlegs Club]]

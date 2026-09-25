@@ -22,7 +22,7 @@ The Largest city on planet [[Ebaum]]
 | [[Gun City Subway]]                                                | Subway             | 2300 |
 | [[Shane Dawson Maximum Security Prison for the Criminally Insane]] | Prison             | 2247 |
 | [[Sky England]]                                                    | Island in the Sky  | 2247 |
-|                                                                    |                    |      |
+| [[Scope Outer Zone]]                                               |                    |      |
 |                                                                    |                    |      |
 
 ![[Pasted image 20260909014110.png]]
@@ -36,6 +36,9 @@ Patches showed some of his roll20 files on screen in [[The Maids 3: Free Sex Day
 - food is not great like 2020 Jollibee was
 - you can pay your way out of prison, this is talked about in uncles falcon but just noting it again
 - The landmass that Gun City is on is shaped like a revolver gun
+- Has an unfinished, partially visible, invisible wall around it that Steakums failed to complete
+- Everyone who is not ultra wealthy eats carbon based new plastic
+- Scope Outer Zone is the only place that can grow real food
 
 [[Leo the Collector]] Talking about Gun City:
 Leo: Gun City is sort of a landmass that was a bunch of toxic ooze that they built a city upon. That toxic ooze ended up being [[Techno Slime]], and that Techno Slime ended up being very, very valuable and enriched the city. It was one of the first major settlements on planet Ebaum. Gun City also has these things called Outer Zones. These are sort of like burrows in the big apple. And one of the burrows is Scope, which is literally like a scope on top of a pistol. This 38 looking special that is Gun City. And the scope is Scope Outer Zone sponsored by Scope Mouthwash. And it is a landmass that is a desert. But right north of it is this massive mountain and then beyond that is the Frozen Wastes of Soy, which is sort of this like a frozen expanse that people don't really go to. All around the Gun City landmass is the uninhabitable Seabaum sponsored by Stamps.com. And it's this sort of oozy, smoky, primordial planet material, sort of like a gaseous kind of thing that nobody can live in for longer than like half a second.

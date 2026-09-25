@@ -13,11 +13,13 @@ characters:
   - Marie Stain
   - Rex
 Year Set: 2247
-Campaign: The Temple of T3h PeNgU1N of d00m
+Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
 ---
-Previous Campaign: [[Gun City- A Broad's City- The Uncle's Falcon]]
 Next Episode: [[Gun City and the Temple of t3h PeNgU1N of d00m- Part 2]]
+Previous Campaign: [[Gun City- A Broad's City- The Uncle's Falcon]]
 
+
+<h3 align="center">The Papi Chuco Killers</h3>
 
 
 Narrator: Interior: [[Shane Dawson Maximum Security Prison for the Criminally Insane]].
@@ -58,6 +60,11 @@ The three say their last words expecting to land in the coliseum to be executed.
 Ray: School Sucks
 Patrick: I love college and hate all the parties-- or I hate college and love all the parties
 Blotoss: ugh, that guy took both of my ideas, shit fuck--
+
+
+---
+
+<h3 align=center>Sky England</h3>
 
 Landing in a sparse gray room rather than a coliseum, the three realize they've landed in the Warden's office, where they're face to face with the Warden, [[Barney the Dinosaur]].
 
@@ -135,8 +142,12 @@ Ray: I'm like the number one slave in the world.
 Leo: There's enough of me to go around to have you as slaves. Look, let's just first come with me to my mansion, come to my chambers, and we will...
 Ray: What kind of slave do you take me for?
 
-Narrator: he walks you out of the hangar. 
-Walking out of the hanger the heroes can see the massive implements protecting the prosperity of the island, with complete biodome coverage with electric fence addon, guard towers with %100 perimeter coverage, and a weather simulator creating a perpetually fogger landing morning on the island. Reaching Leo's mansion the group is greeting by a Jollibee butler. While these unimaginably large and grandiose mansions are known to exist on sky islands, this one is particularly well furnished with ancient artifacts. And not just any artifacts, SNES, Wii, Trinitron CRT TVs, Sony Walkmans, artifacts of unknown ownership and some thought to be legend. Artifacts of Earth lore that they've heard of in Gun City, but never seen. The group walks up a spiral staircase to Leo's chambers, entering with Leo closing and locking the door behind him.
+Narrator: Walking out of the hanger the heroes can see the massive implements protecting the prosperity of the island, with complete biodome coverage with electric fence addon, guard towers with %100 perimeter coverage, and a weather simulator creating a perpetually fogger landing morning on the island. Reaching Leo's mansion the group is greeting by a Jollibee butler. While these unimaginably large and grandiose mansions are known to exist on sky islands, this one is particularly well furnished with ancient artifacts. And not just any artifacts, SNES, Wii, Trinitron CRT TVs, Sony Walkmans, artifacts of unknown ownership and some thought to be legend. Artifacts of Earth lore that they've heard of in Gun City, but never seen. The group walks up a spiral staircase to Leo's chambers, entering with Leo closing and locking the door behind him.
+
+
+---
+
+<h3 align=center>The Legend Of The N-Word Pass</h3>
 
 Leo (spinning a cube globe): it's only a precaution, I promise. I need to talk to you all about something
 Patrick whispering: He's got the cube globe, you guys. Holy fucking shit, you guys.
@@ -247,8 +258,12 @@ Sullivan: I'm sorry that was German.
 Ray: I know, I didn't-- I mean I knew, I just I didn't know why
 Sullivan: It was the first thought that came to my mind. I'm really sorry. I did choir,
 
-
 Sullivan sings to the three of them in perfect German, Silent Night, as they slowly drift off to sleep and then Patrick at around 2 a.m. Gets up, checks the coast is clear and goes to fuck the couch in the closet. Blotoss and Ray hear this in the night, with Ray able to mostly sleep through it but Blotoss hearing the distinct whistling a Yoda penis makes while fucking. 
+
+
+---
+
+<h3 align=center>Techno Slime Percocets and CyberCrossFit</h3>
 
 The next morning the three are tended to by the Jollibee attendants washing their feet, providing kisses and receiving kisses. Patrick is fed polobak surprise while tide by the ankles hanging from the ceiling. Propper attire for the island let alone the auction are laid out for the boys, Ray successfully wears the suite with a tight fit, Blotoss disregarded the option, and Patrick used the suit as a reference for drawing a suit onto his prison jumpsuit with a sharpie
 
@@ -285,8 +300,7 @@ Ray: I've really been thinking about spending 180 dollars on a message chair rig
 Jollibee: oh sick! like great! Yeah-- 
 Ray: no dude. You're gonna get a sweet commission off this
 Jollibee: No, I really, like, why really man my quote has been down dude. Ray: You're gonna get like 15 bucks super soon, Let me just check, you know, I'm like halfway through the massage. Let me just see how it ends, you know? And then I'll commit.
-Jollibee: that's a good one! It's a good choice, right? That's a good one, but I will do that for you...
-I mean just kidding.
+Jollibee: that's a good one! It's a good choice, right? That's a good one, but I will do that for you... I mean, just kidding.
 
 The chair starts performing a computer massage on Rays computer.
 
@@ -296,6 +310,11 @@ of buying this
 Ray gets up and runs away once the Jollibee turns around for a moment, leaving the employee out of luck.
 
 As the sun starts to go down they three of them regroup and head back to the Mansion and up to his chamber where Leo is waiting for them.
+
+
+---
+
+<h3 align=center>The Auction</h3>
 
 Leo: it's almost time for the the auction. So head over to the events center Bring Sullivan with you and be on the lookout. I I've recently received some intel from some of my security detail that there are people who might be trying to steal some of The artifacts that are on display And I would assume that the floppy disk that contains That contains the Isola del la penguin , they might be stealing that one in particular that one that we need to know where to go next 
 Sullivan: all right, so Uh, it's about 8:15 now. So if we walk over there, we'll we'll get there by 8 30 just in time for the cocktail hour They're gonna have those little uh Those little shrimp things um shrimp It's different. It's different than just shrimp but I don't know. I'm sorry I said shrimp. I guess uh.
@@ -319,7 +338,7 @@ Ray: I need money now.
 Auctioneer: He says i'm sorry sir and while you do look like a distinguished guest, with those black and white stripes. I simply-- 
 Blotoss: Are you being sarcastic right now? I could have you thrown out of here. I'm friends with leo
 
-(8:30 pm ~ cocktail hour)
+<h4 align=center>8:30 pm : Cocktail Hour</h4>
 
 
 Ray: Hey, hey, Pat come with me. Okay, trust me
@@ -408,7 +427,6 @@ Bartender: Oh man same brother.
 Ray: I miss prison, three hot's and a cot. Are you joking?
 Bartender: Dude, don't even get me started. I love prison 
 
-
 Horderves Troll:  Look, I wouldn't I wouldn't normally do this, but we need to save some for the other guests
 Patrick: I've got a little stomach, I've got a little Yoda stomach, common! 
 Horderves Troll: Look I-- I-- I can give you one more shrimp, but after that I have to cut you off
@@ -416,7 +434,7 @@ Patrick: No, sorry fuck, okay. Well, that's fine.
 
 Blotoss walks off to the hallway leading behind the stage, Jollibee kitchen staff and auction appraisers buzz by as he approaches the guarded artifacts room. The guard recognizes Blotoss as part of the group Leo brought in and lets him through, He inspects the table holding the artifacts and places the Volkswagen Jetta keys on the table so they get auctioned off with the other items. Without further thought Blotoss returns to the cocktail hour to get loaded with Ray. 
 
-(8:45 pm)
+<h4 align=center>8:45 pm</h4>
 
 Blotoss matches Ray in drinks but doesn't realize Ray is drinking Sherley Temples and he's having Jameson. As more guests enter the venue a former student love of both Ray and Blotoss, [[Marie Stain]], spots them and is followed by a massive bodyguard.
 
@@ -447,7 +465,11 @@ Ray: Go Blotoss! Go Blotoss!
 Patrick (Mouth full of shrimp): It's your Birthday!
 Marie: Oh you boys never cease to amuse me. Well, I'm a girl and this is my only personality So I'm gonna leave now 
 
-(8:55 pm)
+
+---
+
+
+<h3 align=center> 9:00 pm : The Auction</h3>
 
 The guests begin moving towards the seats in front of the stage as the auction is nearly ready to begin. As the archeologists take their seats they notice a guest in a black cloak sit down just as the first item presentation begins.
 
@@ -475,14 +497,13 @@ Auctioneer: The masters to the Cabbie song. The master recordings to the Cabbie 
 (Gets bought instantly)
 Auctioneer: Special edition Brickelberry Wave Bird controller
 (Auctioned off quickly)
-Auctioneer: This is new, I suppose, Oh. Volkswagen Jetta, starting...
+Auctioneer: This is new, I suppose, Oh... Volkswagen Jetta, starting...
 Blotoss from another room: One trillion tokens!
 
 Blotoss lifts Patrick up to the vent so he can get a better sense of things in there, Patrick is able to use force amplified senses to identify that whoever was in the vents has exited and are now. He's able to navigate to where they exited the vents and is able to see two figures in black ninja garb, using Yoda's Mind Patrick can only decipher so much as they're thinking in a foreign language but he knows its mal intent, and not only that, that they're here to steel the Penguin of Doom. Blotoss realizing they might want backup if they don't want these unwanted guests getting away so he runs back to the auction room yelling.
 
-
 Blotoss: Guys, there's something weird going on. There's-- Jaffar is in the vents, and I think he's up to no good
-Ray: Don't listen to him, he's, he's like a drunk out of his mind.
+Ray: Don't listen to him, he's, he's like drunk out of his mind.
 Blotoss: I am more sober than I have ever been.
 
-The auctioneer used to their high jinx at this point ignores their yelling. At the sound of any suspicion Patrick sees the ninjas go for their escape, and hoping to stop them he kicks his hoverboard out through the vent grate allowing him to jump into the room as it hits the ninjas. The ninjas stumble out of the door from getting hit and into sight of the atrium bringing everyone into the situation.
+The auctioneer, used to their high jinx at this point, ignores their yelling. At the sound of any suspicion, Patrick sees the ninjas go for their escape, and hoping to stop them he kicks his hoverboard out through the vent grate allowing him to jump into the room as it hits the ninjas. The ninjas stumble out of the door onto one of the atrium balconies exposing them to the crowd.
