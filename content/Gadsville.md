@@ -4,6 +4,8 @@ Has an old world charm to it as it appears like a late 21st century [[Earth]]
 
 Ruled by the [[Gad Family]]
 
+A lot of the citizens are [[Worm (Race)]]s
+
 The only legal vehicles in Gadsville are Walmart scooters
 
 Has a giant cow building similar to [[HQ of Steakums]] where the Gad Family lives and also houses the largest computer in Gadsville

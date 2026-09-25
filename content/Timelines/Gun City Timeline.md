@@ -1,4 +1,6 @@
 
+![[SolutioDarkBrain.png]]
+
 This is the timeline focusing on the player characters [[Patrick Yoda]], [[Ray William Johnson]], and [[Blotoss Piss]]
 
 | Ebaum Year | Campaign                                           |

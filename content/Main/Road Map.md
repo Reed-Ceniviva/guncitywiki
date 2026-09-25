@@ -1,6 +1,7 @@
+Here's an explanation of [[the process of converting episodes into pages]] if you want it.
 
 1. Gun City Timeline
-	1. Gun City: Operation Solutio Darkbrain (2)
+	1. Gun City: Operation Solutio Darkbrain
 		- [x] Subtitles created
 		- [x] Transcripts extracted (Raw)
 		- [x] Clean dialog transcriptions and summarize actions
@@ -15,12 +16,12 @@
 		- [x] Add missed links and update related information 
 		- [x] update Table of Contents and Roadmap
 	3. Gun City and the Temple of teh PeNgU1N of d00m
-		- [x] Subtitles created(10/11) - DaVinci Resolve won't make them for ep 8
-		- [x] Transcripts extracted (Raw) (10/11)
-		- [ ] Clean dialog transcriptions and summarize actions (1/11)
-		- [ ] add formatting and section titles (0/11)
-		- [ ] Add missed links and update related information 
-		- [ ] update Table of Contents and Roadmap
+		- [x] Subtitles created- DaVinci Resolve won't make them for ep 8
+		- [x] Transcripts extracted (Raw)
+		- [ ] Clean dialog transcriptions and summarize actions (2/11)
+		- [ ] add formatting and section titles (1/11)
+		- [ ] Add missed links and update related information (1/11)
+		- [ ] update Table of Contents and Roadmap (1/11)
 	4. Sullivan's 11
 	5. Playtime Continuufun
 	6. Escape from Mneme
@@ -50,3 +51,5 @@
 17. Way of the Donkey
 18. POW MIA BBQ: Da Memorial Cookout
 19. Hero's of Podlistia
+
+

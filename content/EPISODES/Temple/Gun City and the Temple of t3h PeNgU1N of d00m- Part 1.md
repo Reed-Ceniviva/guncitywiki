@@ -506,4 +506,4 @@ Blotoss: Guys, there's something weird going on. There's-- Jaffar is in the vent
 Ray: Don't listen to him, he's, he's like drunk out of his mind.
 Blotoss: I am more sober than I have ever been.
 
-The auctioneer, used to their high jinx at this point, ignores their yelling. At the sound of any suspicion, Patrick sees the ninjas go for their escape, and hoping to stop them he kicks his hoverboard out through the vent grate allowing him to jump into the room as it hits the ninjas. The ninjas stumble out of the door onto one of the atrium balconies exposing them to the crowd.
+The auctioneer, used to their high jinx at this point, ignores their yelling. At the sound of any suspicion, Patrick sees the ninjas go for their escape, and hoping to stop them he kicks his hoverboard out through the vent grate allowing him to jump into the room as it hits the ninjas. The ninjas stumble out of the door onto one of the atrium balconies exposing them to the crowd and setting off the Event Center's security lockdown. 

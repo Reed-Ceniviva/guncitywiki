@@ -7,6 +7,11 @@ characters:
   - Blotoss Piss
   - Ray William Johnson
   - Patrick Yoda
+  - Pennsylvania Jim
+  - Gerard de Poupu
+  - Rex
+  - Marie Stain
+  - Mike the Worm
 ---
 Next Episode: [[Gun City and the Temple of t3h PeNgU1N of d00m- Part 3]]
 Previous Episode: [[Gun City and the Temple of t3h PeNgU1N of d00m- Part 1]]
@@ -26,11 +31,11 @@ With Patrick successfully engaging the ninjas and exposing them to the auction r
 Sullivan: One Thousand Dollars!
 Patrick: Sold!
 (Patrick throws the floppy disk to Sullivan)
-Patrick: now you owe me $1000.
+Patrick: now you owe me 1000 dollars.
 Sullivan: No, no, I don't.
 Patrick: That's not-- No, no, I sold it to you.
 Sullivan: I thought we were doing a thing. This seemed cool. Now you're asking me for money.
-Patrick: You owe me $1000.
+Patrick: You owe me 1000 dollars.
 Sullivan: I will not. I don't--
 Ray: just pay up.
 Sullivan: I don't have it on hand.
@@ -118,50 +123,50 @@ Ray: Nice
 
 Leaving the event center all the former characters mingle about before leaving the island, Rex comes up to say bye.
 
-Rex: Hey, that was pretty good back there. You guys know what to fight.
-(Ray punches him in the stomach)
+Rex: Hey, that was pretty good back there. You guys know how to fight.
+(Ray punches him in the stomach, hurting his own hand)
 Ray: Hey man, you too
 Rex: Yeah, okay, cool. I'm gonna go.
-Marie: I do say, I'm sorry about that, he always gets all riled up when there's any chance to make blood spill out of somebodies body. But I'm gonna have to go fellas, it was nice seeing you all. hopefully next time there's an auction I'll be in town as well.
+Marie: I do say, I'm sorry about that, he always gets all riled up when there's any chance to make blood spill out of somebody's body. But I'm gonna have to go fellas, it was nice seeing you all. hopefully next time there's an auction I'll be in town as well.
 (She blows the boys ~~a kiss~~)
 (Pennsylvania Jim looking at the camera)
 Patrick: Hey fuck you man!
 (Blotoss throws a chair towards him)
 Ray: fucking pussy get the fuck out of here
 (Jim dodges the chair and continues making the face)
-Ray: Don't you ever make that face of me, bro!
+Ray: Don't you ever make that face at me, bro!
 Jim: It's pretty Dwight-- Pretty Dwight of you guys.
-Gerard: Huh Huh, Dwight indeed, this was the worst auction I've ever seen Leo. Huh Huh
+Gerard: *Huh Huh*, Dwight indeed, this was the worst auction I've ever seen Leo. *Huh Huh*
 Ray: I'm gonna go Oscar on you
-Gerard: I don't know what that is, I'm French!
+Gerard: I don't know what that is, *I'm French!*
 
 (All the guest leave)
 
 Leo: all right, we need to take this back to my study right away. So, you know, let's head over there.
 
-Leo walks out with Sullivan trotting behind, the archeologists decide to follow along and head back to Leo's chambers at the mansion. Leo now with the floppy disk from Sullivan, bangs on a desk and a 1997 Dell desktop computer come out from the desk, booting up to Windows 98 Leo inserts the floppy disk. The disk is read successfully and executes a link which reveals a QR code. "Oh hold on one second", Leo pulls out a drawer and finds an iPhone to scan the code, "They want me to enter in... they text me, hold on", Leo completes the two factor authentication bringing online Club Penguin. They see penguins hanging out, Leo is intently studying the screen, Blotoss misunderstands and things the screen is a window that he needs to enter. Ray's computer instincts kick in and he recognizes a few black squiggles in the bottom left corner of the screen, he zooms and enhances and is able to make out the numbers for a Longitude and Latitude coordinates.
+Leo walks out with Sullivan trotting behind, the archeologists decide to follow along and head back to Leo's chambers at the mansion. Leo now with the floppy disk from Sullivan, bangs on a desk and a 1997 Dell desktop computer comes out from the desk, booting up to Windows 98 and Leo inserts the floppy disk. The disk is read successfully and executes a link which reveals a QR code. "Oh hold on one second", Leo pulls out a drawer and finds an iPhone to scan the code, "They want me to enter in... they texted me, hold on", Leo completes the two factor authentication bringing online Club Penguin. They see penguins hanging out, Leo is intently studying the screen, Blotoss misunderstands and thinks the screen is a window that he needs to enter. Ray's computer instincts kick in and he recognizes a few black squiggles in the bottom left corner of the screen, he zooms and enhances and is able to make out the numbers for a Longitude and Latitude coordinates.
 
 Ray: I know that they wouldn't give us the straight up coordinates.
-Leo: what what coordinates are you seeing? 
-Ray: Well, I'm sorry, I'm talking to myself. Can you just let me finish? 
+Leo: what? what coordinates are you seeing? 
+Ray: Well, I'm sorry. I'm talking to myself. Can you just let me finish? 
 Leo: Oh, sorry. Yeah. Yeah, no, 
 Ray: Hey man, cheers. 
 Leo: Uh Yeah. I think that was kind of mean. I think what you did-- but all right.
 Ray: I take it back, man. Yeah.
-Leo: You Backed down so fast. 
+Leo: You Backed down so fast?
 Ray: Yeah, sure. Whatever. I don't-- just sorry. I take that back too, fuck. I'm gonna fuck it up like everything in my life recently. I've been pushing people away. 
 Leo: No, I get it. Yeah, I'm British. So we do that over time.
 Ray:  Okay, so come here, come here. All right. Get real close to
 the screen. like really, really close.
-(Ray pushes him over into the computer)
+(Leo leans in and Ray pushes him over into the computer)
 Ray: Are you done fucking talking? Investigate something you fucking British peace of shit. 
 Leo: I know those coordinates!
 Ray: Oh my God. Okay, fine. You do it. Fuck you.
-Leo: No, thank you for pushing my head directly into the screen so I could see them. That's the longitude and the latitude for the scope.
+Leo: No, thank you for pushing my head directly into the screen so I could see them. That's the longitude and the latitude for The Scope.
 (Leo bangs on the wall and a giant map comes down)
 Leo: I know you know this already but, Gun City is sort of a landmass that was a bunch of toxic ooze that they built a city upon. That toxic ooze ended up being Techno Slime, and that Techno Slime ended up being very, very valuable and enriched the city. It was one of the first major settlements on planet Ebaum. Gun City also has these things called Outer Zones. These are sort of like burrows in the big apple. And one of the burrows is Scope, which is literally like a scope on top of a pistol. This 38 looking special that is Gun City. And the scope is [[Scope Outer Zone]] sponsored by Scope Mouthwash. And it is a landmass that is a desert. But right north of it is this massive mountain and then beyond that is the [[Frozen Wastes of Soy]], which is a frozen expanse that people don't really go to. All around the Gun City landmass is the uninhabitable [[Seabaum]] sponsored by Stamps.com. And it's this sort of oozy, smoky, primordial planet material, sort of like a gaseous kind of thing that nobody can live in for longer than like half a second.
 Leo pointing at the map: those coordinates are there, [[Gadsville]], One of the smaller cities in the Scope region along with [[Tuppytown]]. What I'm guessing is that there's something there in that area that we need.
-Blotoss: I'm having a recollection from one of my studies right now. There's a series of caves in that mountain called the LAN Caves.
+Blotoss: I'm having a recollection from one of my studies right now. There's a series of caves in that mountain called the [[LAN Caves]].
 Ray: Beep, beep, beep, beep, beep, beep, beep, beep, beep. This is my nerd detector and it's going off.
 Blotoss: It's cause you're touching it.
 Ray: No! Okay, you can talk now, I guess.
@@ -169,7 +174,7 @@ Leo: What I'm guessing is that those caves, ah, yes. (Flipping through a book) T
 Ray: Yeah, like a million times.
 Patrick: I go there every weekend.
 Blotoss: I've been there once.
-Leo: Well as you know Patrick, Gadsville is a city run by the [[Gad Family]] which makes this a bit annoying I'd say. See we can't really just drop you in there. Steakums does not have jurisdiction over that region. So look, here's what I'll do, I'll go to Expedia.com. All right, I booked you guys a room at the "That's What She Said Inn"--
+Leo: Well as you know Patrick, Gadsville is a city run by the [[Gad Family]] which makes this a bit annoying I'd say. See we can't really just drop you in there. Steakums does not have jurisdiction over that region. So look, here's what I'll do, I'll go to Expedia.com. All right, I booked you guys a room at the "[[That's What She Said Inn]]"--
 Ray: One room?
 Leo: Um, did you all want separate rooms?
 Ray: Fuck yes dude. I saw you have an island. You fucking big pussy.
@@ -186,15 +191,125 @@ Blotoss: No, I want to know.
 Patrick: We were being sincere.
 Leo whispering confidently: I asked them. 
 (Leo nods)
-Leo: I asked them this time because last time I didn't ask any of them if they'd betray me. But this time I made sure to check if they would. So you don't get a word about that anymore.
+Leo: I asked them this time because last time I didn't ask any of them if they'd betray me. But this time I made sure to check if they would. So you don't got to worry about that anymore.
 Ray: That was pretty smart actually.
-Blotoss: Yeah. I would have thought of that.
+Blotoss: Yeah. I wouldn't have thought of that.
 Leo to Ray: My man
-Leo: all right, Sullivan, you know, help these guys sort of go to the LAN caves and discover what's in there. But you know, I hope everybody, you know, have a safe trip. If you guys need me, you can always call me on your PSPs or be on my island. Sort of enjoying being really rich and English. Thank you for doing this. I promise once we find the N-Word pass, you guys will be free. No more, you know, being in jail and all that and be free to live your lives as famous archaeologists who discovered the N-Word pass. So yeah, run along now, get on the boat and all that.
+Leo: all right, Sullivan, you know, help these guys sort of go to the LAN Caves and discover what's in there. But you know, I hope everybody, you know, have a safe trip. If you guys need me, you can always call me on your PSPs, I'll be on my island, Sort of enjoying being really rich and English. Thank you for doing this. I promise once we find the N-Word pass, you guys will be free. No more, you know, being in jail and all that and be free to live your lives as famous archaeologists who discovered the N-Word pass. So yeah, run along now, get on the boat and all that.
 
 The four file onto the Sky Galion
 
 loud speaker: "Yarg Matey!"
-Leo: just kidding, welcome to me ship
+Leo on the loud speaker: just kidding, welcome to me ship
 
 Jollibee workers hurriedly hoist the sail and raise the anker as a giant jetpack engine warms up in preparation of propelling the ship. The air ship departs Sky England and flies over Gun City, seeing the reflection of it's toxic waste, the dim light of its dark lights, and the weirdness of it's neon lights. Cresting over a mountain peak between the Gun City landmass and The Scope, they enter the outer zone, bypassing the unfinished [[Great Invisible Wall]] around Gun City. Entering an arid desert they fly north over the city of Tuppytown where the furry [[Tuppies (Race)]] lives, closer to the frozen soy expanse in the distance, landing short just outside a colorful blocky town, Gadsville. The gang hops off the ship and approach a gate of the city which reads "Welcome To Gadsville: Where All Your Dreams Come True*". 
+
+
+---
+
+<h3 align=center>Gadsville</h3>
+
+Entering the city the group observes the muted blues and browns making up the blocky, Lego-like, structure and layout of the city evoking the late 21st century Amazon Planned communities of Duluth. Electrical wires stretch along the ground and walls, hanging from lamp to lamp throughout the city. A verbose tram systems runs through the streets affixed to electrical rails with frequent mattress landing zone for people falling/getting off. Those not traveling by the trams are seen riding Walmart scooters around with the speed limited to 20 mph. While the city sprawls with buildings reaching 20 stories tall, a giant cow building looms over the city with a Gad-like face on the head, [[The Gadsville Gateway Cow]] sponsored by Gateway Computer Company. Similar to the [[HQ of Steakums]] in [[Gun City Proper]], Gadsville's largest computer is in the Gateway Cow.
+
+Blotoss strikes some of the wires on the ground with his lead pipe severing their connection trying to determine "how the system works". They then start to wonder passing by [[Worm (Race)|Worm Type]]s who are tram operators soliciting their service and scooter rental stores run by [[Ken Bone (Race)|Ken Bone Types]]. Blotoss knowing he's not allowed in a vehicle in the city encourages the group to instead walk to the hotel, giving Ray a chance to act like he remembers the local landmarks they're passing.
+
+Walking through the city they see lots of performers and shows being put on, Live reenactments of Josh Gad movies and his progenitors performances. The citizens trace their bloodline to Josh Gad whos decedents created dynasties in the late 21st century. Pixels, that one episode of Party Down, Angry Birds, Frozen, all being performed in celebration of their heir apparent. After some walking they arrive at the That's What She Said Inn, and approach the Worm woman at the front desk.
+
+Woman Worm: yeah can I help you
+Patrick: you look like a worm
+Worm Woman: I am a worm
+Ray: you look-- no seriously no you really just look just like a worm 
+Patrick: no you don't get it you look like a worm-- 
+Ray: you look exactly like a worm to us 
+Worm Woman yelling to the back room: Mike they're doing the worm thing
+again! they sent more kids in here to do the worm thing!
+Patrick spitting while talking: wait hold on you look like the most beautiful worm in the world
+(the Worm Woman is grossed out)
+Ray: baby doll, come on you remember me
+Worm Woman: I don't remember you 
+Ray: I've been here before 
+Worm Woman: do you have a room or like what are you guys doing here 
+Blotoss: yeah we already got a room 
+Worm Woman: oh okay 
+Blotoss: So we're just gonna go upstairs we already got it, can we have the spare key to our room 
+Worm Woman: whose name is it under
+Blotoss: yours 
+Ray: yeah yeah your, it's under your. 
+Worm Woman: okay
+Ray: last name your... mama 
+Woman: Ma... Mike they're doing it again
+Patrick: first name is no no no no no and then the last name is wait wait wait wait wait
+Large Male Worm coming out from the back (Mike): alright I'm gonna have to ask you guys to leave you can-- 
+Ray: oh we seriously have a room we have a room ,I don't know whose name it's under, we don't have any money, but we do have a room I think it might be under Lee? Leo's name
+Patrick: wait hold on we can rent a room, hold on let me just call up my friend
+(Patrick calls Sullivan whos with them)
+Sullivan: he-- hello?
+Patrick whispering: you gotta front this for us
+Sullivan: oh come on i already owe you a thousand
+Ray: Can you do one fucking thing for us
+Blotoss: Listen Sullivan, I don't know where the fuck you are but we're at an Inn right now and we really need a room
+Ray: just give us your credit card man
+Patrick: How much is it gonna be for a room?
+[[Mike the Worm]]: yeah okay so I see Leo the Collector here so is that actually?
+Patrick: hold on hold on, okay so Sullivan, its gonna be one thousand dollars for the room, so if you can give me a thousand dollars that would be great
+Sullivan: No way! no way! hey wait a minute, I'm right here! You guys gotta try to stop extorting me!
+Ray whispering: Listen Sullivan I'm gonna be honest with you, the other two can't fucking stand you dude, I'm like the only guy whos on your side here, so, if you want to give me the thousand dollars like, I'll put it to good use, I might, I'll get, I'll like buy you like Chipotle or something. 
+Blotoss: Listen Sullivan I'm gonna be honest with you, the other two can't fucking stand you dude, I'm like the only guy whos on your side here, so, if you want to give me the thousand dollars like, I'll put it to good use, I might, I'll get, I'll like buy you like Chipotle or something. 
+Worm Woman: Okay here are your keys. Alright well, go to your room
+Blotoss: what are you our mom? we don't have to go anywhere
+Ray: fuck you im staying right here
+Blotoss: we're sleeping in the lobby tonight
+Ray: I'm sleeping on this floor right here, and there's nothing you can do about it
+Mike the Worm: yeah there's nothing we can, they can, it's all paid for so we can't really kick them out 
+Ray: that's right!
+(The guys start arranging the lobby couches and cushions into a pillow fort)
+Mike the Worm: Alright Im gonna have to ask you guys to not make it into a fort
+Blotoss: aaaauuuuauauuauuugh I thought we paid for it!
+Ray: wouldn't you love that
+Mike: yes I would
+Ray: yeah no i bet you would
+Mike: you gotta stop
+Ray: sexy pillow fight! keep your underwear on
+Mike: no im not
+Patrick: take your shirt off! come'on
+Blotoss: youre not wearing underwear?
+Mike: I'm not wearing underwear--
+Patrick: do you want people to come in here and rent rooms?
+Ray: come'on! look you sit with us in the lobby, theres all these windows all around, we'll have a sexy underwear pillow fight
+Sullivan: can i have the key to the room
+Mike: yeah sure
+Sullivan: I'm gonna go to the room, you guys want to?
+Ray: no fair he gets a room!?
+Sullivan: we all have a room?
+Ray: Come on!
+Sullivan: okay I'll stay here I guess
+(Sullivan makes a bed like a dog)
+Patrick: Sullivan hold on, can I see that key for one second
+Sullivan: uh okay sure
+
+Patrick takes the key up to the room and the others follow, Blotoss towing the couch cushions with him.
+
+Mike: come on man, okay alright, just bring them back later please
+Blotoss walking away: No
+Mike: God Damnit
+
+The Room is plastered with Gad movie posters and lined with Gad action figures. After some time the boys get a call on the room's Olaf phone.
+
+Worm Woman(Now with an improved voice): You guys have a visitor, do you guys want to come down here or what?
+Ray: Okay enough with the accent work we're coming down
+
+Back in the lobby the archeologists meet with a beautiful [[V-Folx]] man with a Danny Phantom Ghost tail floating in the air and a JoJo's style stylish and buff upper body.
+
+[[Beautiful Simon]]: You're cordially invited to visit the Gad Family!
+Patrick: Yaaaaaaaaaaaaaaaaaaaay!!!!
+
+
+---
+
+<h3 align=center>Outro</h3>
+All's fine and dandy, you know, as Patrick Yoda screams with excitement at meeting the Gads. we cut back to Leo's Sky England and Leo the Collector sits in his mansion in his chambers where he spins his cube globe around in frustration as he reviews the security hologram footage from the break in at the auction. how did they get in there you know he goes over each moment in the security hologram. over and over again circling the image that's being projected trying to understand what could have went wrong. He spins the cube globe around even more in frustration what did I miss, he spins it so hard "gosh bloody dang" that it spins off the axis and thumps onto the ground shaking the security projector. This hologram projector starts skipping and Leo, flustered as he is British, bangs on it to no avail but then he looks over at the hologram and sees what's skipping. The hooded figure the one who came in and gave their name as [[Snoochy Boochies]] repeated over and over. On this malfunctioning security hologram footage is the hooded figure this one Snoochy Boochies getting up and leaving right when the attack started.
+
+Leo: oh my bloody queen, oh my queen god all bloody, shit, bloody queens, oh my god, bloody shit, hell queen bloody, oh man, shit
+
+
+

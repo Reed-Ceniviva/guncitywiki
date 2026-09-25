@@ -2,6 +2,9 @@
 race: Ken Bone
 tags:
   - race
+aliases:
+  - Ken Bones
+  - Ken Bone Types
 ---
 
 

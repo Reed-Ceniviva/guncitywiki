@@ -2,7 +2,7 @@
 tags:
   - Campaign
 ---
-
+![[PenguinofDoom.png]]
 
 Episodes:
 1. [[Gun City and the Temple of t3h PeNgU1N of d00m- Part 1]]

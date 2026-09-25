@@ -1419,11 +1419,16 @@ a gad like face on the cow and so there's this giant gad like face on top of thi
 body that stands 55 stories and like the next tallest building is like 22 in this sort of
 like short short town like kind of like not that not that tall the buildings are tall
 but not that tall and this cow just fucking towers over all them you could see it way
-in the distance and yeah you guys arrive in the town and yeah you you can kind of if you
-want to go to the in you can rent some of the rent a scooter or you can take the tram
-and first thing I do when I step off the boat I reached down to one of the wires on the
-ground and I just cut it just to see what happened yeah roll a attack roll on the wire
-okay all right I'm gonna use my pipe to cut it 24 yeah you dent it in pretty hard do you
+in the distance and yeah you guys arrive in the town
+and yeah you you can kind of if you
+want to go to the in you can rent some of the rent a scooter 
+or you can take the tram
+and 
+first thing I do when I step off the boat I reached down to one of the wires on the
+ground and I just cut 
+it just to see what happened yeah roll a attack roll on the wire
+okay all right I'm gonna use my pipe to cut it 24 
+yeah you dent it in pretty hard do you
 do that stealthily or do you yeah yeah okay roll stealth roll 20 pretty fucking good
 you just roll up in the middle of town fucking like put a cloak over yourself and just bang
 on the structure with a pipe and it was I'm just trying to learn how the system works
