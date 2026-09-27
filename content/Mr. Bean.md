@@ -1,11 +1,11 @@
 ---
+Campaign: "[[Gun City- Operation Solutio Darkbrain]]"
+race: Human
 tags:
   - Character
   - NPC
   - Enemy
   - GunCity
-race: Human
-Campaign: "[[Gun City- Operation Solutio Darkbrain]]"
 ---
 
 It's Mr. Bean

@@ -2,7 +2,6 @@
 tags:
   - GunCity
   - NPC
-  - corporation
 ---
 
 

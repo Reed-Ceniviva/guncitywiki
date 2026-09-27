@@ -1,9 +1,11 @@
 ---
+Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
+race: Human
 tags:
   - Character
   - NPC
   - GunCity
-race: Human
+  - Enemy
 ---
 
 

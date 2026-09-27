@@ -2,6 +2,10 @@
 race: Frog
 tags:
   - race
+aliases:
+  - Frog
+  - Frogs
+  - Frog-type
 ---
 
 | Characters             |          |

@@ -2,6 +2,9 @@
 race: Jollibee
 tags:
   - race
+aliases:
+  - Jollibees
+  - Jollibee
 ---
 are the main goons that work in security, most famously for the [[Jollibee-Peter Thiel Private Police]]
 

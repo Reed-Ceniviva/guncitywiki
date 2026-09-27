@@ -1,9 +1,9 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 tags:
   - location
   - DaMatrix2
   - GunCity
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 on Side 19/20 of Da Matrix 2 
 

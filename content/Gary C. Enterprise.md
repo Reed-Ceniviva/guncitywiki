@@ -1,10 +1,10 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+race: Frog
 tags:
   - Character
   - NPC
   - GunCity
-race: Frog
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
 

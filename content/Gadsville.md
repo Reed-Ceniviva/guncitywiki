@@ -1,3 +1,20 @@
+---
+Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
+tags:
+  - location
+  - ScopeOuterZone
+  - Gadsville
+  - GunCity
+  - City
+---
+
+| Location Name                 | Location Type      |
+| ----------------------------- | ------------------ |
+| [[The Gadsville Gateway Cow]] | Mega-Zorg Building |
+| [[That's What She Said Inn]]  | Hotel              |
+|                               |                    |
+
+
 One of the smaller cities in the [[Scope Outer Zone]] region along with [[Tuppytown]].
 
 Has an old world charm to it as it appears like a late 21st century [[Earth]]

@@ -1,3 +1,8 @@
+---
+tags:
+  - location
+  - Planet
+---
 
 
 Uncle's Falcon Notes:

@@ -1,9 +1,9 @@
 ---
+race: "[[Worm (Race)]]"
 tags:
   - Character
   - GunCity
   - NPC
-race: "[[Worm (Race)]]"
 ---
 
 

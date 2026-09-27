@@ -1,9 +1,10 @@
 ---
+race: "[[Worm (Race)]]"
 tags:
   - race
-race: Worm
 aliases:
   - Worm Type
+  - Worm
 ---
 
 a recurring creature and character race in both the [[Gun City Timeline]] and the [[Trebuchet Village Timeline]] 

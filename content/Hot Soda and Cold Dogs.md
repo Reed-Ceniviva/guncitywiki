@@ -5,6 +5,7 @@ tags:
   - GunCity
 ---
 
+[[Gun City- A Broad's City- The Uncle's Falcon]] Notes:
 
 A restaurant in [[Da Matrix 2]] during the [[Gun City- A Broad's City- The Uncle's Falcon]] campaign, made entirely out of dirt, Minecraft style, that sells cold hot dogs and boiling hot soda and beer. It is owned by [[Ray William Johnson]], [[Blotoss Piss]], and [[Patrick Yoda]] and is run by [[Gary C. Enterprise]].  
 

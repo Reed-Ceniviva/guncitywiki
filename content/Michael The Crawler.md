@@ -1,10 +1,10 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+race: Crawler
 tags:
   - Character
   - NPC
   - GunCity
-race: Crawler
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
 origin: Premium Ep 8 (?)

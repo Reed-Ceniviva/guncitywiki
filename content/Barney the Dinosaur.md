@@ -1,10 +1,10 @@
 ---
+Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
+race: Barney
 tags:
   - Character
   - NPC
   - GunCity
-race: Barney
-Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
 ---
 
 

@@ -1,10 +1,10 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 tags:
   - Enemy
   - Character
   - NPC
   - GunCity
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 a British stag party that includes a young boy. they try to stop the Gun City detectives from meeting with [[Mommy Goodlegs]] in Uncle's Falcon4
 

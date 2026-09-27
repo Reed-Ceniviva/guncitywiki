@@ -2,6 +2,7 @@
 tags:
   - corporation
   - GunCity
+aliases:
 ---
 
 

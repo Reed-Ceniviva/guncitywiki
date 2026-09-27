@@ -1,7 +1,10 @@
 ---
+race: "[[Yoda (Race)]]"
 tags:
   - race
-race: Yoda
+aliases:
+  - Yoda-type
+  - Yoda
 ---
 
 

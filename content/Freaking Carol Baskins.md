@@ -1,9 +1,10 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 tags:
   - Character
   - NPC
   - GunCity
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+  - DaMatrix2
 ---
 
 

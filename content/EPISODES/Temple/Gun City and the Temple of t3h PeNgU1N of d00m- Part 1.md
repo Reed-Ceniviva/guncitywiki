@@ -267,9 +267,9 @@ Sullivan sings to the three of them in perfect German, Silent Night, as they slo
 
 The next morning the three are tended to by the Jollibee attendants washing their feet, providing kisses and receiving kisses. Patrick is fed polobak surprise while tide by the ankles hanging from the ceiling. Propper attire for the island let alone the auction are laid out for the boys, Ray successfully wears the suite with a tight fit, Blotoss disregarded the option, and Patrick used the suit as a reference for drawing a suit onto his prison jumpsuit with a sharpie
 
-Leaving the mansion the three explore the island with their time before the auction. Looking at a general map they see the Event Center, a Shopping Centre, a Hospital, a Private School, the helipad/hanger they landed at and the Mansion they slept in, but with many more buildings and center between each location. Patrick and Blotoss immediately see the medicinal possibilities that might be found in the hospital and head there.
+Leaving the mansion the three explore the island with their time before the auction. Looking at a general map they see the Event Center, a Shopping Centre, a Hospital, a Private School, the helipad/hanger they landed at and the Mansion they slept in, but with many more buildings and centers between each location. Patrick and Blotoss immediately see the medicinal possibilities that might be found in the hospital and head there.
 
-Entering the hospital the equipment and design is state of the art, with a Wii in the lobby and a Wii U in the garbage.  Approaching the front desk they're greeted by a Nurse Joy looking Jollibee.
+Entering the hospital, they see the equipment and design is state of the art, with a Wii in the lobby and a Wii U in the garbage.  Approaching the front desk they're greeted by a Nurse Joy looking Jollibee.
 
 Jollibee Nurse: Welcome to Leo's hospital. How may I help you?
 Blotoss: I am actually, I'm the brother of all of the patients. So I just had to visit them
@@ -279,14 +279,13 @@ Blotoss: Okay, but I am the brother of one of them. Okay. I was lying before but
 Patrick: Okay, Leo said I could walk around
 Jollibee Nurse: okay. Yeah, sure. What's your brother's name?
 Patrick: Leo... I said Leo said I could--
-Jollibee Nurse: ...oh sorry, I though, I though... okay well if you're Leo's guest please just walk around just just don't interfere with the patients
-A lot of them are trying to get some rest. 
+Jollibee Nurse: ...oh sorry, I thought, I thought... okay well if you're Leo's guest please just walk around just- just don't interfere with the patients, A lot of them are trying to get some rest. 
 
-The pair heads for the first room they find with a patient in a full body cast knowing they'd find something in the room.
+The pair head for the first room they find with a patient in a full body cast knowing they'd find something good in the room.
 
-Meanwhile Blotoss headed to the gym to check out the CyberCrossFit class where everyone is gay and all the equipment is lasers with 4D movie experiences add-ons. The experience is extraneous resulting in Ray's suite for the auction ripping down to a whinny the poo Chippendales situation.
+Meanwhile Blotoss headed to the gym to check out the CyberCrossFit class where everyone is gay and all the equipment is lasers with 4D movie experience add-ons. The exercise is extraneous resulting in Ray's suite for the auction ripping down to a whinny the poo Chippendales situation.
 
-Back at the hospital Blotoss looms over the full body cast patient looking eagerly where his pocket should be. He uses a pen as a drill to make a hole through the cast to access the patients pocket finding a pair of Volkswagen Jetta keys(artifact). The keys can't fit through the bored hole and end up ripping a chunk of the caste off with them. 
+Back at the hospital Blotoss looms over the full body cast patient looking eagerly where his pocket should be. He uses a pen as a drill to make a hole through the cast to access the patients pocket finding a pair of [[Volkswagen Jetta keys]](artifact). The keys can't fit through the bored hole and end up ripping a chunk of the caste off with them. 
 
 At the same time Patrick's been investigating the medicine cabinet. Going through the different meds he finds some primo techno slime that he pockets immediately. 
 
@@ -299,27 +298,30 @@ Jollibee: Yeah, All right, dude. No, that's great. That's awesome.
 Ray: I've really been thinking about spending 180 dollars on a message chair right now.
 Jollibee: oh sick! like great! Yeah-- 
 Ray: no dude. You're gonna get a sweet commission off this
-Jollibee: No, I really, like, why really man my quote has been down dude. Ray: You're gonna get like 15 bucks super soon, Let me just check, you know, I'm like halfway through the massage. Let me just see how it ends, you know? And then I'll commit.
+Jollibee: No, I really, like, really man my quote has been down dude. 
+Ray: You're gonna get like 15 bucks super soon, Let me just check, you know, I'm like halfway through the massage. Let me just see how it ends, you know? And then I'll commit.
 Jollibee: that's a good one! It's a good choice, right? That's a good one, but I will do that for you... I mean, just kidding.
 
-The chair starts performing a computer massage on Rays computer.
+The chair starts performing a computer massage on Ray's computer.
 
 Ray: oh my god. This is seriously perfect for my body. Wow. No, I'm really thinking
 of buying this
 
 Ray gets up and runs away once the Jollibee turns around for a moment, leaving the employee out of luck.
 
-As the sun starts to go down they three of them regroup and head back to the Mansion and up to his chamber where Leo is waiting for them.
+As the sun starts to go down the three of them regroup and head back to the Mansion and up to Leo's chamber where he is waiting for them.
 
 
 ---
 
 <h3 align=center>The Auction</h3>
 
-Leo: it's almost time for the the auction. So head over to the events center Bring Sullivan with you and be on the lookout. I I've recently received some intel from some of my security detail that there are people who might be trying to steal some of The artifacts that are on display And I would assume that the floppy disk that contains That contains the Isola del la penguin , they might be stealing that one in particular that one that we need to know where to go next 
+Leo: it's almost time for the the auction. So head over to the events center Bring Sullivan with you and be on the lookout. I've recently received some intel from some of my security detail that there are people who might be trying to steal some of The artifacts that are on display And I would assume that the floppy disk That contains the Isola del la penguin , they might be stealing that one in particular that one that we need to know where to go next 
 Sullivan: all right, so Uh, it's about 8:15 now. So if we walk over there, we'll we'll get there by 8 30 just in time for the cocktail hour They're gonna have those little uh Those little shrimp things um shrimp It's different. It's different than just shrimp but I don't know. I'm sorry I said shrimp. I guess uh.
 
 Patrick does the bubba gump gumbo scene but with shrimp to Sullivan as he tries to lead them to the Event Center. Ray attempts to walk ahead of Sullivan to assert dominance but consistently takes wrong turns, all eventually ending up at their destination.
+
+<h4 align=center>8:15 pm</h4>
 
 As the three enter Leo's Event Center they see it's currently configured as a concert hall but they see a Jollibee walk up and pull a lever which starts the room to morph and change into an auction house with a large atrium in the center and balconies overlooking the center with a skylight overtop. Nice foldout chairs sit in front of a stage facing forward and a hallway leading behind the stage from the center. The Event Center can turn into a concert hall, circus tent, whatever the needs of the occasion are except a Quinceañera due to a pending lawsuit. The Hallways behind the center stage has rooms devoted to kitchen, staff, and bathrooms as well as smaller spaces for private gatherings, one of which houses the Artifacts for tonight's auction. Blotoss identifies the person in charge of the auction and approaches [[The Auctioneer]] who's prepared for the night in his best tux. 
 
@@ -483,7 +485,7 @@ Auctioneer: For our next item We have a discontinued monster energy flavor "Arab
 
 Patrick Yoda with his Yoda ears is able to pick up on foot steps moving through the hallway, He writes "It's Jaffar - Patrick Yoda" and says this to Blotoss passing the note to him. Blotoss goes into a Grinch-Rage type trance and runs into the hallway with Patrick in his pocket, Ray stays to watch the auction. 
 
-Auctioneer: Next is the full mummified skeleton of the man the why you know guy was based off of. Real name was Martin Kaplowitz a Polish American who walked into a manhole and died making this expression
+Auctioneer: Next is the fully mummified skeleton of the man the why you know guy was based off of. Real name was Martin Kaplowitz a Polish American who walked into a manhole and died making this expression
 
 Patrick catches his breath and sobers up at da water bubbler, Blotoss investigates the hallway but doesn't find anything immediately alarming.
 
@@ -497,13 +499,16 @@ Auctioneer: The masters to the Cabbie song. The master recordings to the Cabbie 
 (Gets bought instantly)
 Auctioneer: Special edition Brickelberry Wave Bird controller
 (Auctioned off quickly)
+
+<h4 align=center>9:50 pm</h4>
+
 Auctioneer: This is new, I suppose, Oh... Volkswagen Jetta, starting...
 Blotoss from another room: One trillion tokens!
 
-Blotoss lifts Patrick up to the vent so he can get a better sense of things in there, Patrick is able to use force amplified senses to identify that whoever was in the vents has exited and are now. He's able to navigate to where they exited the vents and is able to see two figures in black ninja garb, using Yoda's Mind Patrick can only decipher so much as they're thinking in a foreign language but he knows its mal intent, and not only that, that they're here to steel the Penguin of Doom. Blotoss realizing they might want backup if they don't want these unwanted guests getting away so he runs back to the auction room yelling.
+Blotoss lifts Patrick up to the vent so he can get a better sense of things in there, Patrick is able to use force amplified senses to identify that whoever was in the vents has now exited. He's able to navigate to where they exited the vents and is able to see two figures in black ninja garb, using Yoda's Mind Patrick can only decipher so much as they're thinking in a foreign language but he knows its mal intent, and not only that, that they're here to steel the Temple of Teh Penguin of Doom floppy disc. Blotoss realizing they might want backup if they don't want these unwanted guests getting away so he runs back to the auction room yelling.
 
 Blotoss: Guys, there's something weird going on. There's-- Jaffar is in the vents, and I think he's up to no good
 Ray: Don't listen to him, he's, he's like drunk out of his mind.
 Blotoss: I am more sober than I have ever been.
 
-The auctioneer, used to their high jinx at this point, ignores their yelling. At the sound of any suspicion, Patrick sees the ninjas go for their escape, and hoping to stop them he kicks his hoverboard out through the vent grate allowing him to jump into the room as it hits the ninjas. The ninjas stumble out of the door onto one of the atrium balconies exposing them to the crowd and setting off the Event Center's security lockdown. 
+The auctioneer, used to their high jinx at this point, ignores their yelling and brings out the floppy disk artifact. At the sound of any suspicion, Patrick sees the ninjas go for their escape, and hoping to stop them he kicks his hoverboard out through the vent grate allowing him to jump into the room as it hits the ninjas. The ninjas stumble out of the door onto one of the atrium balconies exposing them to the crowd and setting off the Event Center's security lockdown. 

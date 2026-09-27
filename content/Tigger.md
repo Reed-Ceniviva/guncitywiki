@@ -1,9 +1,10 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+race: Tiger
 tags:
   - Character
   - NPC
   - GunCity
-race: Tiger
 ---
 
 

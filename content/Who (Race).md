@@ -1,7 +1,10 @@
 ---
-race: Who
+race: "[[Who (Race)]]"
 tags:
   - race
+aliases:
+  - Whos
+  - Who
 ---
 they have an swirly penis with a hook on the end like an ornament
 whos' have green spit

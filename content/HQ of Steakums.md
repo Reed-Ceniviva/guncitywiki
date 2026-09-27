@@ -1,8 +1,8 @@
 ---
+Campaign: "[[Gun City- Operation Solutio Darkbrain]]"
 tags:
   - location
   - GunCity
-Campaign: "[[Gun City- Operation Solutio Darkbrain]]"
 ---
 The Head Quarters of [[Steakums Federation of Bodies and Spaces]]
 

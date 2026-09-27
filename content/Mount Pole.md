@@ -1,9 +1,9 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 tags:
   - GunCity
   - DaMatrix2
   - location
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 The location of [[Jeff Teidrich]]'s giant pagoda in [[Da Matrix 2]]
 

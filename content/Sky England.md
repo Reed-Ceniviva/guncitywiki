@@ -1,9 +1,9 @@
 ---
+Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
 tags:
   - location
   - GunCity
   - SkyIsland
-Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
 ---
 
 [[Leo the Collector]]'s Home

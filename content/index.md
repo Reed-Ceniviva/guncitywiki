@@ -1,5 +1,5 @@
 
-Welcome to the Gun City Wiki.
+# Welcome to the Gun City Wiki.
 This is a fan created wiki and is a work in progress, started in appreciation of [[Patches]]' creativity and patience. The roadmap for which campaigns will be worked on in what order can be found at the [[Road Map]]. 
 
 #### Example: Campaign (Number of Episodes)

@@ -1,6 +1,10 @@
 ---
+Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
 aliases:
   - Tamagotchi Civilization
+tags:
+  - GunCity
+  - corporation
 ---
 
 

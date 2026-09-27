@@ -1,8 +1,8 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 tags:
   - Vehicle
   - GunCity
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
 Description of the [[Top Tens Tattletale Agency]]'s: 

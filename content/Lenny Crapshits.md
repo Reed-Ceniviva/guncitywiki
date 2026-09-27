@@ -1,10 +1,10 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+race: Human
 tags:
   - Character
   - NPC
   - GunCity
-race: Human
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
 

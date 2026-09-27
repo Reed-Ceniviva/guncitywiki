@@ -1,10 +1,10 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+race: "[[V-Folx (Race)]]"
 tags:
   - NPC
   - Character
   - GunCity
-race: "[[V-Folx (Race)]]"
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
 

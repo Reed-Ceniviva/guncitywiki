@@ -1,9 +1,9 @@
 ---
+Campaign: "[[Gun City- Operation Solutio Darkbrain]]"
 tags:
   - NPC
   - Character
   - GunCity
-Campaign: "[[Gun City- Operation Solutio Darkbrain]]"
 ---
 
 CEO of Steakums Federation of Bodies and Spaces

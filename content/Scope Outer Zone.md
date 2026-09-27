@@ -1,8 +1,20 @@
 ---
+Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
+tags:
+  - location
+  - ScopeOuterZone
+  - GunCity
 aliases:
   - The Scope
   - Scope Valley
+  - Scope Zone
 ---
+
+| Location Name | Location Type             |
+| ------------- | ------------------------- |
+| [[Gadsville]] | City                      |
+| [[LAN Caves]] | Cave System in a Mountain |
+| [[Tuppytown]] | City                      |
 
 
 shaped like a scope attached to the [[Gun City]] landmass

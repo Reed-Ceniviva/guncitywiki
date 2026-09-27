@@ -11,7 +11,7 @@ tags:
 Played by: [[Cameron]]
 Class: Grinch Hunter (Fighter)
 
-Melee Weapon: Dual Lead Pipes
+Melee Weapon: [[Dual Lead Pipes]]
 Long Range Attack: [[Grinch Gun]]
 Pet: [[Monkey named Patrick]] (very quiet, completely quiet)
 
@@ -26,9 +26,10 @@ speaks in a gravelly low monotone voice
 | Likes to Fight one on one honorably             | fake people                              |
 | Ray William Johnson's Wife's Pussy (snack)      | worms                                    |
 | Martha May Whovier                              | riddles                                  |
-| Christmas curios and Arctic Artifacts           |                                          |
+| Christmas curios and Arctic Artifacts           | when people move their knuckle around    |
 | Spelunking                                      |                                          |
 | Advanced Cultural Defilement (Academic Subject) |                                          |
+|                                                 |                                          |
 |                                                 |                                          |
 |                                                 |                                          |
 
@@ -38,6 +39,8 @@ Sleeps Inside a Tent which is inside a Whoville themed snow globe which is insid
 
 ---
 ## [[Gun City and the Temple of t3h PeNgU1N of d00m]] Notes:
+
+![[Pasted image 20260927160912.png]]
 
 - uncovered the lost tomb of Fred Claus
 - stole back the crystal present from Hanukkah bandits
@@ -77,6 +80,8 @@ Home/Sleep: Lives in a tent inside a Whoville style snow globe inside another te
 ---
 
 ## [[Gun City- Operation Solutio Darkbrain]] Notes:
+
+![[Pasted image 20260927160947.png]]
 
 - Age (yr 2300): 19
 - might be a cousin of Sullivan

@@ -1,10 +1,10 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+race: Cricket
 tags:
   - Character
   - NPC
   - GunCity
-race: Cricket
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
 Origin: PAL Master Chief Tier: Guide to $100 Authors' Commentary

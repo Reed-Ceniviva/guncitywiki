@@ -1,9 +1,9 @@
 ---
+race: Robot
 tags:
   - Character
   - NPC
   - GunCity
-race: Robot
 ---
 
 [[Hussy Kitsune]] Robot Butler at [[The Princess Peach Castle]]

@@ -21,12 +21,13 @@ Has a vocoded/robotic voice that comes from him and not the demon
 | Likes                     | dislikes |
 | ------------------------- | -------- |
 | Big Bitches               | School   |
-| Costco chicken bake       |          |
+| Costco chicken bake       | gore     |
 | The Ace of Spades by ACDC |          |
 | Now You See Me 2          |          |
 | Jumper (Movie)            |          |
 | His Wife's Pussy (snack)  |          |
 | the taste of poop/poop    |          |
+| popcorn                   |          |
 |                           |          |
 
 Home/Sleep:
@@ -35,6 +36,9 @@ Sleeps in his Malibu Mansion glass home with his wife Cameron
 ---
 
 ## [[Gun City and the Temple of t3h PeNgU1N of d00m]] Notes:
+
+![[Pasted image 20260927160824.png]]
+
 - Beauty standards are different than on earth
 - went by Roy William Johnson when he was dating Pam from the office
 - 
@@ -46,6 +50,8 @@ Sup. You know the drill by now. I am a computer attached to the back of a demon.
 ---
 
 ## [[Gun City- A Broad's City- The Uncle's Falcon]] Notes:
+
+![[Pasted image 20260927161420.png]]
 
 - has blood sugar issues sometimes
 - [[Mommy Goodlegs]] looks like ~~Lisa Ann, Nailing Palen,~~ Calebs Wife
@@ -79,6 +85,7 @@ Character Intro:
 
 ## [[Gun City- Operation Solutio Darkbrain]] Notes:
 
+![[Pasted image 20260927160749.png]]
 
 - Smokes cigarettes
 - keeps his [[PSP]] in his horns on missions

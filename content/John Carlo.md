@@ -1,11 +1,11 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+race: "[[Frog (Race)]]"
 tags:
   - GunCity
   - GunsTitty
   - NPC
   - Character
-race: "[[Frog (Race)]]"
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
 

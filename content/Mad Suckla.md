@@ -1,20 +1,20 @@
 ---
+race: "[[Worm (Race)]]"
 tags:
   - Character
   - NPC
   - GunCity
   - GunsTitty
-race: "[[Worm (Race)]]"
 aliases:
   - Da Mad Suckla
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
 
 
-Uncle's Falcon Notes:
+[[Gun City- A Broad's City- The Uncle's Falcon]] Notes:
 - has a slimy taste to him under a layer of chip flavor dust
 - Huge fan of the bad [[Cream 2]]
+- Runs [[Da Mad Suckla's Den]]
 - was aware of the plans for [[The Cockulus Rift 2.0- The Cockulus Quest Cordless Experience]]
 
 Uncle's Falcon Mentions:
@@ -32,7 +32,7 @@ Narrator: *in front, the man of the hour sits, the mad suckla himself flanked by
 ---
 
 
-Operation Solutio Darkbrain Mention:
+[[Gun City- Operation Solutio Darkbrain]] Mention:
 Narrator: *you either rule the streets (of [[Guns Titty]]) through fear like the Mad Suckla*
 
 Jamal Da Worm: *The Uncle and his Nephews they come around here they, they're a real pain, the Mad Suckla's been trying to get rid of them himself for taking too much off the top,*

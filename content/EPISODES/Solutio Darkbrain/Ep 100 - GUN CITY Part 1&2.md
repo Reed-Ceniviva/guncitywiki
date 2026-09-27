@@ -79,7 +79,9 @@ Patrick and Piss return to the bar to meet up with Ray where they use up all the
 
 <h3 align="center">The Posters Underground</h3>
 
-meeting back up with Sullivan, he thanks Blotoss for dealing with The Uncle Nephews and in return shows them a tunnel on their cybermaps that leads to the main city, the tunnel is the Posters Underground so there's a lot of freaks in there. The three grab Sullivan and bring him along into the tunnel as a guide. Blotoss auto fails a pun roll for how bad it is. 
+meeting back up with Sullivan, he thanks Blotoss for dealing with The Uncle Nephews and in return shows them a tunnel on their cybermaps that leads to the main city, the tunnel is the Posters Underground so there's a lot of freaks in there. The three grab Sullivan and bring him along into the tunnel as a guide, letting him ride on Ray's head. Blotoss auto fails a pun roll for how bad it is. 
+
+![[Pasted image 20260927160604.png]]
 
 [[Posters Underground]] Overview:
 *Underneath Gun City is the abandoned tunnel, it's filled with freakers and luddites and anti tech freakazoids the scariest scum this side of Ebaum, the habitable parts are better known as the Posters Underground, lawless criminal shit stains, some of the toughest gunks in the slums won't go near, it used to be an underground railway system, the last government project existing in Gun City before Steakums took control and officially privatized democracy. Now the tunnel acts as a makeshift sewer system after the previous one collapsed from all the shit inside of it. The brighter neon's above ground become long dim streaks of lazy blue coasting down the sides of the tunnel walls flickering in and out revealing the creepy creatures, the nasty stinkers that lurk to do their dirty deeds, the creatures are one thing but the black depths of the Posters Underground means our hero's can't see shit, but Lord knows they'll be stepping in it.* 

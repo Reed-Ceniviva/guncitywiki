@@ -1,13 +1,14 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+race: "[[V-Folx (Race)]]"
 tags:
   - Character
   - GunCity
   - DaMatrix2
   - NPC
-race: "[[V-Folx (Race)]]"
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+aliases:
+  - Jeff The Third Reich
 ---
-Also known as Jeff The Third Reich
 
 Suckla talking about Jeff: *he's one of the biggest players in Da Matrix 2. He funds a lot of the [[V-tech]] that lives there.  Jeff is my reply guy, nothing more. But he seems to think he's a bit more than that. My runners I send through there, he starting to stop them in their tracks. He's starting to prop them up as captures he's made in glorious ways of fighting corruption.*
 

@@ -1,9 +1,11 @@
 ---
+Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
 tags:
   - Vehicle
   - GunCity
 aliases:
   - Leo's Sky Galleon
+  - Sky Galleon
 ---
 
 

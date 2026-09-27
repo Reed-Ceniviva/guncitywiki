@@ -6,15 +6,26 @@ tags:
   - Character
   - PC
 ---
-Cousin is [[John Carlo]]
+Cousin to [[John Carlo]]
+Had a brother named Jonathan The Frog who died
 
 
+---
+
+## [[Gun City and the Temple of t3h PeNgU1N of d00m]] Notes:
+
+![[Pasted image 20260927161242.png]]
+
+
+- Has no special abilities
+- Is just a civilian
+- 
 
 
 ---
 
 
-[[Gun City- A Broad's City- The Uncle's Falcon]] Notes:
+## [[Gun City- A Broad's City- The Uncle's Falcon]] Notes:
 
 - is green
 - green lives matter too
@@ -26,8 +37,9 @@ Cousin is [[John Carlo]]
 
 ---
 
-[[Gun City- Operation Solutio Darkbrain]] Notes:
+## [[Gun City- Operation Solutio Darkbrain]] Notes:
 
+![[Pasted image 20260927160647.png]]
 
 Age: 37 (Frog years) (yr 2300)
 

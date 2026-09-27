@@ -39,6 +39,8 @@ Patrick runs as far as he can until he gets tired and then lays on his hoverboar
 ---
 ## [[Gun City and the Temple of t3h PeNgU1N of d00m]] Notes:
 
+![[Pasted image 20260927161039.png]]
+
 - Became a doctor in prison
 - 
 
@@ -83,6 +85,8 @@ Patrick runs as far as he can until he gets tired and then lays on his hoverboar
 ---
 
 ## [[Gun City- Operation Solutio Darkbrain]] Notes:
+
+![[Pasted image 20260927161108.png]]
 
 - keeps his [[PSP]] in his pocket
 - wiggles his fingers to cast pickle rick transmography spell 

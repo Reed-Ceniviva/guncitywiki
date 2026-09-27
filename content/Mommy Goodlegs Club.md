@@ -1,8 +1,8 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 tags:
   - location
   - GunCity
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
 run by [[Mommy Goodlegs]]

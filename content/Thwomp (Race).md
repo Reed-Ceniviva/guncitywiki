@@ -2,6 +2,9 @@
 tags:
   - race
 race: Thwomp
+aliases:
+  - Thwomp
+  - Thwomps
 ---
 
 

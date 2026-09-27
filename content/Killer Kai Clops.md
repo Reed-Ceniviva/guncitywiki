@@ -1,10 +1,10 @@
 ---
 Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+race: Cyclops
 tags:
   - NPC
   - Enemy
   - Character
-race: Cyclops
 ---
 
 

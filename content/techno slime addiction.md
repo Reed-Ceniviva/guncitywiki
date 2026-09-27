@@ -1,3 +1,7 @@
+---
+tags:
+  - GunCity
+---
 
 [[Gun City- A Broad's City- The Uncle's Falcon]] Notes:
 

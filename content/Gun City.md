@@ -5,25 +5,33 @@ tags:
   - location
 ---
 The Largest city on planet [[Ebaum]]
+The city sprawls out across the land mass that it inhabits, stretching into boroughs and outer zones that all work in tandem with the Gun City corporate ecosystem.
 
-| Locations                                                          | Type               | Year |
-| ------------------------------------------------------------------ | ------------------ | ---- |
-| [[Lockheed Martin Plaza]] shopping district                        | Plaza              | 2245 |
-| [[S.P.A.Z]]                                                        | Zone               | 2245 |
-| [[Mommy Goodlegs Club]]                                            | Club               | 2245 |
-| [[United Health Group Incorporated]] Offices                       | Office Building    | 2245 |
-| [[Marlboro District]]                                              | District           | 2245 |
-| [[Da Mad Suckla's Den]]                                            | Drug Den           | 2245 |
-| [[Chemtrail Park]]                                                 | Park               | 2245 |
-| [[Posters Underground]]                                            | Area               | 2300 |
-| [[Gun City Proper]]                                                | Borough            | 2300 |
-| [[Guns Titty]]                                                     | Borough            | 2300 |
-| [[HQ of Steakums]]                                                 | Mega-Zorg building | 2300 |
-| [[Gun City Subway]]                                                | Subway             | 2300 |
-| [[Shane Dawson Maximum Security Prison for the Criminally Insane]] | Prison             | 2247 |
-| [[Sky England]]                                                    | Island in the Sky  | 2247 |
-| [[Scope Outer Zone]]                                               |                    |      |
-|                                                                    |                    |      |
+| Locations                                                          | Type                  | Year |
+| ------------------------------------------------------------------ | --------------------- | ---- |
+| [[Lockheed Martin Plaza]]                                          | Plaza                 | 2245 |
+| [[S.P.A.Z]]                                                        | Zone                  | 2245 |
+| [[Mommy Goodlegs Club]]                                            | Club                  | 2245 |
+| [[United Health Group Incorporated]]                               | Office Building       | 2245 |
+| [[Marlboro District]]                                              | District              | 2245 |
+| [[Da Mad Suckla's Den]]                                            | Drug Den              | 2245 |
+| [[Chemtrail Park]]                                                 | Park                  | 2245 |
+| [[Posters Underground]]                                            | Urban Tunnel System   | 2300 |
+| [[Gun City Proper]]                                                | Center City           | 2300 |
+| [[Guns Titty]]                                                     | Borough               | 2300 |
+| [[HQ of Steakums]]                                                 | Mega-Zorg Building    | 2300 |
+| [[Gun City Subway]]                                                | Subway                | 2300 |
+| [[Shane Dawson Maximum Security Prison for the Criminally Insane]] | Prison                | 2247 |
+| [[Sky England]]                                                    | Island in the Sky     | 2247 |
+| [[Scope Outer Zone]]                                               | Outer Zone            | 2247 |
+| [[LAN Caves]]                                                      | Mountain Cave System  | 2247 |
+| [[Tuppytown]]                                                      | Outer Zone City State | 2247 |
+| [[Gadsville]]                                                      | Outer Zone City State | 2247 |
+| [[The Gadsville Gateway Cow]]                                      | Mega-Zorg Building    | 2247 |
+| [[That's What She Said Inn]]                                       | Hotel                 | 2247 |
+| [[Bullet Town]]                                                    |                       | 2247 |
+|                                                                    |                       |      |
+|                                                                    |                       |      |
 
 ![[Pasted image 20260909014110.png]]
 Patches showed some of his roll20 files on screen in [[The Maids 3: Free Sex Day]]

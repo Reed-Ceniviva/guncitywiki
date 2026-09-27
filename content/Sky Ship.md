@@ -1,8 +1,8 @@
 ---
+Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
 tags:
   - Vehicle
   - GunCity
-Campaign: "[[Gun City and the Temple of t3h PeNgU1N of d00m]]"
 ---
 
 A class of hover car that is more on the level of a yacht 

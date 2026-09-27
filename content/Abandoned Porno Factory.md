@@ -1,8 +1,8 @@
 ---
+Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 tags:
   - location
   - GunCity
-Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
 ---
 
 Has not been in use for decades now, porno was banned in Gun City many years ago, it was considered ableist by the [[Steakums Federation of Bodies and Spaces]]. there's been no porno ever since the himbo debacle of 2300(?) 

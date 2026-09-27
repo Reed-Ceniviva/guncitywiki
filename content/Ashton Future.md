@@ -1,10 +1,10 @@
 ---
+Campaign: "[[Gun City- Operation Solutio Darkbrain]]"
+race: Human
 tags:
   - NPC
   - Character
   - GunCity
-race: Human
-Campaign: "[[Gun City- Operation Solutio Darkbrain]]"
 ---
 Origin: Premium ep 7
 

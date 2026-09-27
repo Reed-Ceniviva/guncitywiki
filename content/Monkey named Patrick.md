@@ -1,10 +1,12 @@
 ---
+race: Monkey
 tags:
   - Character
   - NPC
   - GunCity
-race: Monkey
 ---
+![[Pasted image 20260927161141.png]]
+
 A pale, skinny, sickly looking Monkey who is malnourished and rarely fed by his owner [[Blotoss Piss]]
 
 Can be thrown at enemies to attack them

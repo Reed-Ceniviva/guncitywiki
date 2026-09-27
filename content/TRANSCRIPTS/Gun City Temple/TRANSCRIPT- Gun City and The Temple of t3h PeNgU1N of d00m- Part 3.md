@@ -24,6 +24,9 @@ Afterwards, they walked to the hotel, that's what she said, where they made ever
 and then finally went to their rooms, where they were quickly called down from a, by a stranger,
 a super handsome, stranger V-folk named Beautiful Simon, who told them it was time to meet with the Gads.
 And so yeah, that's what happened. So I believe Patrick Yoda screamed in excitement,
+
+
+
 and yeah, Beautiful Simon's there. They are just sort of floating, like a, like a, like Casper, but with a JoJo,
 like a JoJo's Bizarre Adventure top. Some of your, some of your fans who are as cool as me will know what that means.
 And yeah, like, it's Cameron. And, and yeah, and they're saying to you,
@@ -464,103 +467,9 @@ Let's see what you find in there.
 That's pretty good.
 You find a lot of water.
 I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I think I found a little bit of water.
-I guess I can hold it.
+
+(The auto subtitle maker had a fit once patrick was doing patrick shit in the bathroom)
+
 I guess I can hold it.
 But when I walk in, my legs are crossed.
 I'm holding my wee wee.
@@ -586,9 +495,7 @@ as you slowly walk up.
 And he says, "I've been waiting for some time."
 What -- who are you three?
 What do you want?
-What do you want?
-What do you want?
-What do you want?
+
 You -- didn't you ask us to come?
 What? Hold on.
 And then he goes like --
@@ -656,7 +563,6 @@ You're with two liars here.
 These are my cousins.
 Yeah, and we're batshit crazy.
 I pee my pants.
-[ Laughter ]
 I pee my pants.
 up to punctuate him saying he's batched it crazy.
 Okay, these are your cousins, huh? I got a 22 by the way, and they are fans. Yes. Yeah, sorry
@@ -757,7 +663,9 @@ Yeah, yeah, go for it actually I'll wait until after we get the deal done
 Yeah, I don't want to endanger it yet, but I will be doing that we have phones. Oh, I have a phone
 Yeah, you all PSPs though. Yeah, all right. Yeah, that stands for phone super phone. I order pizza
 No Patrick you don't have a phone we established already that you threw yours in a river and you don't have one
-I remember that because it was very it was very funny. I
+I remember that because it was very it was very funny.
+(This felt like cameron really trying to not let patrick get off on some bullshit again)
+I
 Don't think that happens cannon. I don't think that happened. It's can and you have no phone
 You have a poop on your head. Yeah, I remember that too actually another episode. Yeah, no
 And also you have to do like a really racist voice because you committed to doing that another day
@@ -800,11 +708,12 @@ Nope, it's it's you know what a lot of times baby shit baby talk just sounds lik
 So I am very sorry about that. Yeah, all right
 I'm sorry for getting to hey, I don't get on your bad side. I've heard of stories about you three and there's prisoners
 kill
-Kill is a poppy Chuko. Come on. Everybody knows you three. Yeah, man. We're psycho
+Kill is a poppy Chuko. Come on. Everybody knows you three. v
 You're totally psycho you guys were detectives
 You killed a guy and now your archaeologist nobody could handle you. No, we just go nuts like that
 Yeah, it's kind of our swag. I like you three, you know, you're not like the rest of these guys fucking weirdos over here
 You're more like all the all the tough guys who live in here. Please stop saying can each one
+
 I see in the crowd here. We have to we have two very fat
 Looking zombies. Can we get confirmation that these are the same fat zombies from Saw cast about trick? Yeah. Yeah
 It's there. It's their great great great great great great grandchildren. Okay, so they don't know each other
@@ -814,6 +723,7 @@ It's finally all that they want to make like a 20 minute fan theory YouTube vide
 Yeah, please all the data you need. Yeah, so zombies can have kids. Yeah. Well, that would be oh
 Zombies can have kids speaking of essays. What's up with this crazy bear ass fool in the middle? I'm
 I'm glad you asked
+
 so you guys look into the ring and
 You do see this crazy bear ass fool, you know for the viewers at home. There's a massive bear in the ring
 Some sort of like where bear like it's like 15 feet tall and like, you know, did you say care bear?
@@ -843,6 +753,8 @@ His winnings so yeah
 That's happening
 So do we have to like fight somebody or did you just want to?
 Hear a watch the fight. What's up, man?
+
+
 Are you talking to a?
 We're gonna baby
 I'm right over here. What are you talking about? Sorry so small. Yeah, so small not even on the map. Yeah, sorry about
@@ -859,6 +771,8 @@ Don't know the way I got him. I actually forgot to put him on the screen
 I
 Where are you just don't let it happen again? Yeah, I'm sorry about that actually
 What the fuck?
+
+
 I'm standing in the middle of the ring right now, and I'm yelling I think I dropped a contact lens
 Somewhere in this underground fighting ring can't everybody look at the ground nobody move
 You see like the the announcer hey hey hey fellas if you want to fight you can fight
@@ -1091,11 +1005,13 @@ beam. Yeah, do it. Yeah, that's not gonna hit with that. Fuck me. Yeah. Hey, man
 seconds, I'm gonna hit you but this time. But yeah, but you you you still have another
 attack obviously. So never mind. It's actually gonna happen right now. I'm gonna just try
 the same thing again. Yeah, do it. That hits big time one easy. Nice. Yeah. 16 damage 16
-psychic damage. Shit. Yeah. Is that enough? No, it's so close. Yeah, you just like fucking
+psychic damage. Shit. Yeah. Is that enough? No, it's so close. 
+Yeah, you just like fucking
 like, shoot this matrix code out and it like just enters his lizard's eye and it's like
 like trying to like it can't understand the code its heads or eyes are rolling back in
 its head. As it's like being overwhelmed by this matrix code. These ones and zeros. And
-it's like in a shit ton of pain. And now it is its turn. And it's going to it's like
+it's like in a shit ton of pain. 
+And now it is its turn. And it's going to it's like
 no, it's my turn. Oh, yeah, sorry shit. Yeah, you're trying to kill me. I know you have
 a vendetta against me because I switch turns. I don't do not don't don't don't you say that
 I do him now. No, I know you're clever dude. I never had you by asking if I could do something
@@ -1440,6 +1356,7 @@ So you can move around you just have to get away from the bugs that are like in 
 corner
 Mm-hmm. Does that carry all them with me? No, the bugs are just hovering around here
 Yeah, but does that carry there in my foreskin?
+
 No, so we never really even like figured out what that was like a it's like a corn husk
 We just called it the short separate from you and it sits it's floating. It's probably blue and I'm stuck in it
 I thought it was on my penis. Nope that that would be disgusting
@@ -1453,7 +1370,9 @@ Can we get to the next okay
 Yeah, I mean like I mean can I can I
 Alright, so what should I do should I hit him with the hoverboard?
 That's one move you got. Do you have any good abilities? You have one of the abilities that you well
-I got a hoverboard boomerang for 17. That's good that hits you have used a force, which is very good
+I got a hoverboard boomerang for 17. That's good that hits 
+
+you have used a force, which is very good
 It basically just powers you up
 Okay, I should have done that before you hit. Yeah, I should have
 Looked at your bill. Yeah, so does using the hoverboard every time. Yeah
@@ -1464,14 +1383,22 @@ Makes a noise similar to the worm
 You see it like doing like the you know the front way the back way where it's looking at its nails
 And yeah, I mean you have another attack too if you want to
 Oh, I should say shit fuckers really cuz you're afraid of the bugs and they're your line of sight
-You do have disadvantage on these attacks. Oh, so do I re-roll that? Yeah. Yeah, just roll again. Okay, maybe you'll be
-okay, maybe
+You do have disadvantage on these attacks. 
+Oh, so do I re-roll that? 
+Yeah. Yeah, just roll again. 
+Okay, 
+maybe you'll be
+okay, 
+maybe
 That's too bad
- it's a crit, but you get you get the lower one so you still do a damage at least
-Okay, but you can roll you could do another attack
-With disadvantage and then you can roll to see if you can no longer be afraid of the bugs. Okay. What if I roll?
+it's a crit, but you get you get the lower one so you still do a damage at least
+Okay, 
+but you can roll you could do another attack
+With disadvantage and then you can roll to see if you can no longer be afraid of the bugs. 
+Okay. What if I roll?
 To see the bug thing now
-Now it's gotta be at the end of your turn. Okay. Well
+Now it's gotta be at the end of your turn. 
+Okay. Well
 Can I charge up before I do this attack with used a force or?
 Here's what you can use used a force instead. I'd let you do that
 Okay, I'm gonna charge up there next and in your next turn you can use used a force so
@@ -1493,6 +1420,7 @@ Patrick Yoda can do an a new attack
 force lightning that does 48 lightning damage and
 Also, you can do like another move do a bunch of shit and then as a bonus action
 Just do the lightning instead for 2d6 so when you when you when you tap into the force what happens to you Patrick Yoda
+
 I kind of just sit there like
 Yeah, and you hear the answer go I can't tell if this is racist or not, but it's getting crazy
 And yeah, so we're all wisdom saving throw with advantage now to be no longer afraid of the bugs
@@ -1513,7 +1441,9 @@ Okay, so it's 46 damage 20
 Fuck yeah, dude. So you run away afraid of these bugs
 Overcome your fear and then just shoot lightning out of your hands and just fucking
 Fucking own this goddamn hand you get it in its butthole palm and it's like
-It's like fucking you fucked it up pretty fucking good dude. Is it dead?
+It's like fucking you fucked it up pretty fucking good dude.
+
+Is it dead?
 Absolutely not why not
 It's just has more HP than that. That's all how much you're a good turn man
 Has some some left how much left is it bloodied yet? It's not bloodied. That's the key words there. Yeah. No, it's not
@@ -1531,6 +1461,7 @@ Yes, mr. Patches is gonna eat my fucking balls oh
 And
 Yeah, but now now hey, we're back to the back to reality aka fantasy reality. Yeah, ooh
 It is now
+
 Sullivan's turn and he's just like trying to climb out of the foreskin this turn
 He's been hurt by the bugs. He's not looking too good
 I'm still stuck in that in that thing, huh? And he gets out of the foreskin. He just like
@@ -1567,6 +1498,7 @@ Crit fail. Yeah, you just are like
 You're like, what is this thing like you're trying to find your way? It's like you try to find my god a sheet
 You just see more and more force. Oh, no
 Yeah, you can't you can't get out of it. You're stuck in that force. Oh fuck everyone
+
 Yeah, it is now your turn
 Patrick Yoda
 Okay
@@ -1761,19 +1693,4 @@ Yeah, that's yeah.
 Yeah, I like that.
 It's the whole story.
 Yeah.
-It's the whole story.
-Yeah.
-It's the whole story.
-Yeah.
-It's the whole story.
-Yeah.
-It's the whole story.
-Yeah.
-Yeah.
-Yeah.
-Yeah.
-Yeah.
-Yeah.
-Yeah.
-Yeah.
-Yeah.
+

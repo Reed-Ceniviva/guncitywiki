@@ -1,4 +1,5 @@
 ---
+Campaign: "[[Gun City- Operation Solutio Darkbrain]]"
 tags:
   - location
   - GunCity

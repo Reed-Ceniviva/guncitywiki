@@ -4,6 +4,8 @@ tags:
   - GunCity
   - DaMatrix2
 Campaign: "[[Gun City- A Broad's City- The Uncle's Falcon]]"
+aliases:
+  - Da Matrix 2 Sponsored by Teen Vogue
 ---
 
 

@@ -1,4 +1,6 @@
 ---
+Campaign: "[[Gun City- Operation Solutio Darkbrain]]"
+race: Human
 tags:
   - Character
   - NPC

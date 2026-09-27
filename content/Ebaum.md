@@ -11,14 +11,14 @@ Locations
 | Location                 | Type          |
 | ------------------------ | ------------- |
 | [[Gun City]]             | Landmass/City |
-| The Frozen Wastes of Soy | Arctic        |
-| The Seabaum              | Ocean         |
+| [[Frozen Wastes of Soy]] | Arctic        |
+| The [[Seabaum]]          | Ocean         |
 |                          |               |
 
 ---
 
 
-Penguin of Doom Notes:
+[[Gun City and the Temple of t3h PeNgU1N of d00m]] Notes:
 
 - this is supposed to be like an even more You know Capitalist world in the world we're in
 - there are sky islands where the super wealthy live
@@ -31,7 +31,7 @@ before Earthlings arrived on Planet Ebaum, there were many a civilization, but n
 ---
 
 
-Uncle's Falcon Notes:
+[[Gun City- A Broad's City- The Uncle's Falcon]] Notes:
 
 - Tokens make the planet go round
 - beyond the shores of the gun city continent are the oceans of The Seabaum 
@@ -41,7 +41,7 @@ Uncle's Falcon Notes:
 ---
 
 
-Solutio Darkbrain Notes:
+[[Gun City- Operation Solutio Darkbrain]] Notes:
 
 [[Gun City- Operation Solutio Darkbrain]] Intro: 
 *Long ago Humanity abandoned [[Earth]]  and all the disgusting poor people on it in favor of a new home, planet [[Ebaum]]. While there is no life on the planet, there are enough GI Joe PSAs and remixes of Papa Smurfs' can I lick yo ass to feed humanity for at least another half century.*
